@@ -8,6 +8,8 @@ YOUR CERTIFIED PUNK MUSIC AND METALHEAD ENJOYER‼️💢
 
 ☢️ •‼️⛓️𓊈𝐂𝐄𝐑𝐓𝐈𝐅𝐈𝐄𝐃!!1 𝐏𝐇𝐈𝐒𝐍𝐎𝐌 𝐖𝐀𝐓𝐂𝐇𝐄𝐑𓊉⛓️
 
+<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/3450a4b4-ee64-4740-89f0-1abfa38a865a" />
+
 <img width="735" height="427" alt="image" src="https://github.com/user-attachments/assets/ce6c959f-ec68-4318-ba65-28dffedecd88" />
 
 Hi I'm icry, miles, edge, miller, cosmo, arachna I have so many names call me whatever you want Or Burak bcz I'm from turkiye multifandomer + autistic + has adhd + he/him/all/she/her/they/them/xe/xem/xyr + aroace (aromantic asexual)
