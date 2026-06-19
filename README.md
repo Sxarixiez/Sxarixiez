@@ -17,6 +17,7 @@ Dislikes; dogs, insects(all of them),bullying
 Dni; if you're zionist,ableist,pedophile,zoophile,homophobic,groomer,rapist,SA DOER,racist
 
 Fandoms; undertale/deltarune, Forsaken, Regretevator, Phighthing, Friday Night Funkin, Brawl Stars, Five Nights at Freddy's, Cuphead, Mario, Sonic The Hedgehog, Solarballs and etc, (there's more but I cant write allat) (you can speak to me extras in dms)
+<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/65e601dd-c0c9-4672-8e9b-e2bc821d8d5d" />
 
 <!--
 **Sxarixiez/Sxarixiez** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
