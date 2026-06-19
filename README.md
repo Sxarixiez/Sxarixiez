@@ -1,3 +1,5 @@
+<img width="736" height="737" alt="image" src="https://github.com/user-attachments/assets/f1f87771-12b5-4ba9-9d04-3909e1ff70d5" />
+
 丂乂卂尺乂丨尺丨乇 !!1 ᵁᴿ ᴸᴼᶜᴬᴸ ᴾᵁᴺᴷ/ᴹᴱᵀᴬᴸ ᴱᴺᴶᴼʸᴱᴿ
 
 YOUR CERTIFIED PUNK MUSIC AND METALHEAD ENJOYER‼️💢
