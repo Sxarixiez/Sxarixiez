@@ -25,6 +25,8 @@ Dni; if you're zionist, ableist, pedophile, zoophile, homophobic, transphobic, g
 
 Fandoms; undertale/deltarune, Forsaken, Regretevator, Phighthing, Friday Night Funkin, Brawl Stars, Five Nights at Freddy's, Cuphead, Mario, Sonic The Hedgehog, Solarballs and etc, (there's more but I cant write allat) (you can speak to me extras in dms)
 <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/65e601dd-c0c9-4672-8e9b-e2bc821d8d5d" />
+<img width="2048" height="2048" alt="image" src="https://github.com/user-attachments/assets/3caef925-70b0-4bd8-9132-f63515240ebb" />
+
 <img width="720" height="1280" alt="image" src="https://github.com/user-attachments/assets/f153f5f5-93e1-4929-b3ca-ba5fbbd8bc80" />
 
 <!--
