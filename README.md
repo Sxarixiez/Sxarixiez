@@ -12,7 +12,7 @@ YOUR CERTIFIED PUNK MUSIC AND METALHEAD ENJOYER‼️💢
 
 <img width="735" height="427" alt="image" src="https://github.com/user-attachments/assets/ce6c959f-ec68-4318-ba65-28dffedecd88" />
 
-Hi I'm icry, miles, edge, miller, cosmo, arachna I have so many names call me whatever you want or Burak bcz I'm from turkiye 
+Hi I'm icry, miles, edge, miller, cosmo, arachna I have so many names call me whatever you want or burak bcz I'm from turkiye 
 
 ENTP | current comfort fandoms; ultrakill, undertale/deltarune, psychopomp, crk, sally face, murder drones, tadc 
 
