@@ -1,4 +1,4 @@
-dumb 7teen little silly asf audhd boygirlthing [any pronouns]
+ᴅᴜᴍʙ 7ᴛᴇᴇɴ ʟɪᴛᴛʟᴇ ꜱɪʟʟʏ ᴀꜱꜰ ᴀᴜᴅʜᴅ ʙᴏʏɢɪʀʟᴛʜɪɴɢ [ᴀɴʏ ᴘʀᴏɴᴏᴜɴꜱ]
 
 <img width="798" height="100" alt="image" src="https://github.com/user-attachments/assets/ea50ff84-3b49-44bc-a055-47d8b8d6aa3c" />
 
