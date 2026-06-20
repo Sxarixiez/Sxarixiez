@@ -7,6 +7,7 @@
 YOUR CERTIFIED PUNK MUSIC AND METALHEAD ENJOYER‼️💢
 
 ☢️ •‼️⛓️𓊈𝐂𝐄𝐑𝐓𝐈𝐅𝐈𝐄𝐃!!1 𝐏𝐇𝐈𝐒𝐍𝐎𝐌 𝐖𝐀𝐓𝐂𝐇𝐄𝐑𓊉⛓️
+
 <img width="477" height="100" alt="image" src="https://github.com/user-attachments/assets/73fbb0a9-e1ab-4da3-be00-8f0045882b1c" />
 
 <img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/3450a4b4-ee64-4740-89f0-1abfa38a865a" />
