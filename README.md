@@ -32,6 +32,8 @@ Dislikes; dogs, insects(all of them),bullying
 
 Dni; if you're zionist, ableist, pedophile, zoophile, homophobic, transphobic, groomer, rapist, SA DOER, racist
 
+<img width="1137" height="100" alt="image" src="https://github.com/user-attachments/assets/4411ad4a-4a8e-4bc8-81b9-c38dc8a71d20" />
+
 Fandoms; undertale/deltarune, Forsaken, Regretevator, Phighthing, Friday Night Funkin, Brawl Stars, Five Nights at Freddy's, Cuphead, Mario, Sonic The Hedgehog, Solarballs and etc, (there's more but I cant write allat) (you can speak to me extras in dms)
 <img width="2048" height="2048" alt="image" src="https://github.com/user-attachments/assets/3caef925-70b0-4bd8-9132-f63515240ebb" />
 <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/65e601dd-c0c9-4672-8e9b-e2bc821d8d5d" />
