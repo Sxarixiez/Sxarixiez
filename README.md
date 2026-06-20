@@ -22,6 +22,7 @@ multifandomer + autistic + has adhd + he/him/all/she/her/they/them/xe/xem/xyr + 
 
 <img width="735" height="856" alt="image" src="https://github.com/user-attachments/assets/f6248636-6476-4e93-836b-3f00cb45a39d" />
 [this is the old about me I'm 17 years old now.]
+
 <img width="1320" height="100" alt="image" src="https://github.com/user-attachments/assets/58a19ff7-5f0c-4e21-8066-d874aed790c9" />
 
 Likes; gaming, listening music, speaking with da gang, my own tazmanian devil plush, cats, metal/heavy metal/black metal/gore metal, punk, rock, hyperpop, nightcore, indie game osts, snythwave, frutiger aero, skating, basketball, playing guitar(I'll have it soon)
