@@ -38,7 +38,7 @@ Likes; gaming, listening music, speaking with da gang, my own tazmanian devil pl
 
 Dislikes; dogs, insects(all of them),bullying
 
-Dni; if you're zionist, ableist, pedophile, zoophile, homophobic, transphobic, groomer, rapist, SA DOER, racist
+Dni; if you're zionist, ableist, pedophile, zoophile, homophobic, transphobic, groomer, rapist, SA DOER, racist, dark/com/pro shipper.
 
 <img width="1137" height="100" alt="image" src="https://github.com/user-attachments/assets/4411ad4a-4a8e-4bc8-81b9-c38dc8a71d20" />
 
