@@ -35,7 +35,7 @@ $${\color{Green}"ring around the rosie, pocket full of posiess"}$$<img width="33
 <img width="735" height="856" alt="image" src="https://github.com/user-attachments/assets/f6248636-6476-4e93-836b-3f00cb45a39d" />
 [this is the old about me I'm 17 years old now.]
 
-$${\color{Green}"Don't make me have to rip that other eye out too!!"}$$<img width="458" height="432" alt="subspace-phighting" src="https://github.com/user-attachments/assets/96b0c52a-7b5e-4428-8467-33355abda7f5" /> 
+$${\color{Pink}"Don't make me have to rip that other eye out too!!"}$$<img width="458" height="432" alt="subspace-phighting" src="https://github.com/user-attachments/assets/96b0c52a-7b5e-4428-8467-33355abda7f5" /> 
 
 <img width="1320" height="100" alt="image" src="https://github.com/user-attachments/assets/da5cf577-91f1-4463-b2d9-26cca4f9e42e" />
 
