@@ -1,4 +1,3 @@
-<img width="498" height="281" alt="silver-wolf-honkai-star-rail" src="https://github.com/user-attachments/assets/1c2703a0-7e35-4160-8273-4daab4ae8346" />
 ᴛʜɪꜱ ᴀᴄᴄᴏᴜɴᴛ ɪꜱ ᴜꜱᴇᴅ ꜰᴏʀ ᴘᴛ!! [ᴘᴏɴʏ ᴛᴏᴡɴ] (ʀᴇᴀᴅ ʙᴇꜰᴏʀᴇ ɪɴᴛᴇʀᴀᴄᴛɪɴɢ)
 
 ᴅᴜᴍʙ 7ᴛᴇᴇɴ -ᴍɪɴᴏʀ- ʟɪᴛᴛʟᴇ ꜱɪʟʟʏ ᴀꜱꜰ ᴀᴜᴅʜᴅ ʙᴏʏɢɪʀʟᴛʜɪɴɢ [ᴀɴʏ ᴘʀᴏɴᴏᴜɴꜱ] #𝙏𝙃𝙀𝘿𝘼𝙍𝙆𝙇𝙊𝙍𝘿𝙎𝙄𝙈𝙋 #ˢᴴᴬᴿᴷᶠᴵᶜᵀᴵⱽᴱ https://scarriotzz1x4.straw.page
@@ -18,7 +17,7 @@ YOUR CERTIFIED PUNK MUSIC AND METALHEAD ENJOYER‼️💢
 ☢️ •‼️⛓️𓊈𝐂𝐄𝐑𝐓𝐈𝐅𝐈𝐄𝐃!!1 𝐏𝐇𝐈𝐒𝐍𝐎𝐌 𝐖𝐀𝐓𝐂𝐇𝐄𝐑𓊉⛓️
 <img width="730" height="99" alt="image" src="https://github.com/user-attachments/assets/8bb95cc9-a20c-4ffb-a0b2-b0b8e6420ba3" />
 <img width="730" height="99" alt="image" src="https://github.com/user-attachments/assets/44cbadb7-81f0-4231-a54b-101250ac5e64" />
-
+<img width="498" height="281" alt="silver-wolf-honkai-star-rail" src="https://github.com/user-attachments/assets/1c2703a0-7e35-4160-8273-4daab4ae8346" />
 
 <img width="477" height="100" alt="image" src="https://github.com/user-attachments/assets/73fbb0a9-e1ab-4da3-be00-8f0045882b1c" />
 
