@@ -31,10 +31,6 @@ ENTP | current comfort fandoms; ultrakill, undertale/deltarune, psychopomp, crk,
 multifandomer + autistic + has adhd + he/him/all/she/her/they/them/xe/xem/xyr + aroace (aromantic asexual)
                         
 $${\color{Green}"ring around the rosie, pocket full of posiess"}$$<img width="331" height="498" alt="forsaken-forsaken-roblox" src="https://github.com/user-attachments/assets/7f2d24cf-823b-4643-8922-0a1f30f1acb8" />
-
-<img width="735" height="856" alt="image" src="https://github.com/user-attachments/assets/f6248636-6476-4e93-836b-3f00cb45a39d" />
-[this is the old about me I'm 17 years old now.]
-
 $${\color{Pink}"Don't make me have to rip that other eye out too!!"}$$<img width="458" height="432" alt="subspace-phighting" src="https://github.com/user-attachments/assets/96b0c52a-7b5e-4428-8467-33355abda7f5" />
 
 <img width="1320" height="100" alt="image" src="https://github.com/user-attachments/assets/da5cf577-91f1-4463-b2d9-26cca4f9e42e" />
@@ -53,6 +49,8 @@ Fandoms; undertale/deltarune, Forsaken, Regretevator, Phighthing, Friday Night F
 <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/65e601dd-c0c9-4672-8e9b-e2bc821d8d5d" />
 <img width="1414" height="1414" alt="image" src="https://github.com/user-attachments/assets/6c59b4e6-c12b-4d9e-9510-2860bdbc0898" />
 <img width="720" height="1280" alt="image" src="https://github.com/user-attachments/assets/f153f5f5-93e1-4929-b3ca-ba5fbbd8bc80" />
+<img width="735" height="856" alt="image" src="https://github.com/user-attachments/assets/f6248636-6476-4e93-836b-3f00cb45a39d" />
+[this is the old about me I'm 17 years old now.]
 <!--
 **Sxarixiez/Sxarixiez** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
