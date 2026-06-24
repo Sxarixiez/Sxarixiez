@@ -30,7 +30,7 @@ ENTP | current comfort fandoms; ultrakill, undertale/deltarune, psychopomp, crk,
 
 multifandomer + autistic + has adhd + he/him/all/she/her/they/them/xe/xem/xyr + aroace (aromantic asexual)
                         
-$${\color{Green}"ring  around  the  rosie,  pocket  full  of  posiess"}$$<img width="331" height="498" alt="forsaken-forsaken-roblox" src="https://github.com/user-attachments/assets/7f2d24cf-823b-4643-8922-0a1f30f1acb8" /> 
+$${\color{Green}"ring / around / the / rosie, / pocket / full / of / posiess"}$$<img width="331" height="498" alt="forsaken-forsaken-roblox" src="https://github.com/user-attachments/assets/7f2d24cf-823b-4643-8922-0a1f30f1acb8" /> 
 <img width="735" height="856" alt="image" src="https://github.com/user-attachments/assets/f6248636-6476-4e93-836b-3f00cb45a39d" />
 [this is the old about me I'm 17 years old now.]
 
