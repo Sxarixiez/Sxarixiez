@@ -1,8 +1,6 @@
 ᴛʜɪꜱ ᴀᴄᴄᴏᴜɴᴛ ɪꜱ ᴜꜱᴇᴅ ꜰᴏʀ ᴘᴛ!! [ᴘᴏɴʏ ᴛᴏᴡɴ] (ʀᴇᴀᴅ ʙᴇꜰᴏʀᴇ ɪɴᴛᴇʀᴀᴄᴛɪɴɢ)
 
 ᴅᴜᴍʙ 7ᴛᴇᴇɴ -ᴍɪɴᴏʀ- ʟɪᴛᴛʟᴇ ꜱɪʟʟʏ ᴀꜱꜰ ᴀᴜᴅʜᴅ ʙᴏʏɢɪʀʟᴛʜɪɴɢ [ᴀɴʏ ᴘʀᴏɴᴏᴜɴꜱ] #𝙏𝙃𝙀𝘿𝘼𝙍𝙆𝙇𝙊𝙍𝘿𝙎𝙄𝙈𝙋 #ˢᴴᴬᴿᴷᶠᴵᶜᵀᴵⱽᴱ https://scarriotzz1x4.straw.page
-<img width="480" height="276" alt="vox-hazbin-hotel-vox" src="https://github.com/user-attachments/assets/2d132456-5751-4a9d-a31a-f89eb1a84726" />
-
 <img width="798" height="100" alt="image" src="https://github.com/user-attachments/assets/ea50ff84-3b49-44bc-a055-47d8b8d6aa3c" />
 <img width="150" height="20" alt="blinkies (1)" src="https://github.com/user-attachments/assets/6b3f960c-8a37-4109-baad-71d57ab9cbf2" />
 <img width="498" height="65" alt="werewolf-werewolfkin" src="https://github.com/user-attachments/assets/48290984-5d45-4102-8cd2-d7d98ae5f995" />
