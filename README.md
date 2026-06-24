@@ -30,11 +30,10 @@ ENTP | current comfort fandoms; ultrakill, undertale/deltarune, psychopomp, crk,
 
 multifandomer + autistic + has adhd + he/him/all/she/her/they/them/xe/xem/xyr + aroace (aromantic asexual)
                         
-$${\color{Green}"ring around the rosie, pocket full of posiess"}$$<img width="331" height="498" alt="forsaken-forsaken-roblox" src="https://github.com/user-attachments/assets/7f2d24cf-823b-4643-8922-0a1f30f1acb8" />
-$${\color{Pink}"Don't make me have to rip that other eye out too!!"}$$<img width="458" height="432" alt="subspace-phighting" src="https://github.com/user-attachments/assets/96b0c52a-7b5e-4428-8467-33355abda7f5" />
+$${\color{Green}"ring around the rosie, pocket full of posiess"}$$ <img width="331" height="498" alt="forsaken-forsaken-roblox" src="https://github.com/user-attachments/assets/7f2d24cf-823b-4643-8922-0a1f30f1acb8" />
+$${\color{Pink}"Don't make me have to rip that other eye out too!!"}$$ <img width="458" height="432" alt="subspace-phighting" src="https://github.com/user-attachments/assets/96b0c52a-7b5e-4428-8467-33355abda7f5" />
 
 <img width="1320" height="100" alt="image" src="https://github.com/user-attachments/assets/da5cf577-91f1-4463-b2d9-26cca4f9e42e" />
-
 
 Likes; gaming, listening music, speaking with da gang, my own tazmanian devil plush, cats, metal/heavy metal/black metal/gore metal, punk, rock, hyperpop, nightcore, indie game osts, snythwave, frutiger aero, skating, basketball, playing guitar(I'll have it soon)
 
