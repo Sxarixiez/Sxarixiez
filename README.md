@@ -43,6 +43,7 @@ Hi I'm icry, miles, edge, miller, cosmo, arachna I have so many names call me wh
 ENTP | current comfort fandoms; ultrakill, undertale/deltarune, psychopomp, crk, sally face, murder drones, tadc 
 
 multifandomer + autistic + has adhd + he/him/all/she/her/they/them/xe/xem/xyr + aroace (aromantic asexual)
+
 <img width="350" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />                    
 $${\color{Green}"Ring around the rosie, Pocket full of posiess"}$$
 $${\color{Pink}"Don't make me have to rip that other eye out too!!"}$$ 
