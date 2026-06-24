@@ -18,7 +18,7 @@ YOUR CERTIFIED PUNK MUSIC AND METALHEAD ENJOYER‼️💢
 ☢️ •‼️⛓️𓊈𝐂𝐄𝐑𝐓𝐈𝐅𝐈𝐄𝐃!!1 𝐏𝐇𝐈𝐒𝐍𝐎𝐌 𝐖𝐀𝐓𝐂𝐇𝐄𝐑𓊉⛓️
 <img width="730" height="99" alt="image" src="https://github.com/user-attachments/assets/8bb95cc9-a20c-4ffb-a0b2-b0b8e6420ba3" />
 <img width="730" height="99" alt="image" src="https://github.com/user-attachments/assets/44cbadb7-81f0-4231-a54b-101250ac5e64" />
-<img width="66" height="31" alt="imvu-blinkies" src="https://github.com/user-attachments/assets/2825a3d7-a033-4f70-a06f-f6b45c1cd404" /> <img width="150" height="20" alt="glow-in-the-dark-glow" src="https://github.com/user-attachments/assets/ed772e22-d5ba-4c6e-b251-f860398fa1b0" /> <img width="150" height="20" alt="blinkies" src="https://github.com/user-attachments/assets/217e9fd7-0dfb-483e-a2b2-b51d71b2918f" />
+<img width="66" height="31" alt="imvu-blinkies" src="https://github.com/user-attachments/assets/2825a3d7-a033-4f70-a06f-f6b45c1cd404" /> <img width="150" height="20" alt="glow-in-the-dark-glow" src="https://github.com/user-attachments/assets/ed772e22-d5ba-4c6e-b251-f860398fa1b0" /> <img width="150" height="20" alt="blinkies" src="https://github.com/user-attachments/assets/217e9fd7-0dfb-483e-a2b2-b51d71b2918f" /> <img width="177" height="32" alt="pizza-freak" src="https://github.com/user-attachments/assets/3fefebb6-a091-44f2-8975-0b588802178e" />
 <img width="498" height="281" alt="silver-wolf-honkai-star-rail" src="https://github.com/user-attachments/assets/1c2703a0-7e35-4160-8273-4daab4ae8346" />
 
 <img width="477" height="100" alt="image" src="https://github.com/user-attachments/assets/73fbb0a9-e1ab-4da3-be00-8f0045882b1c" />
