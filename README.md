@@ -1,4 +1,5 @@
-<img width="498" height="498" alt="rentry-divider (1)" src="https://github.com/user-attachments/assets/216aadbd-e559-4f4a-a25a-ab9e358b9a04" />
+<img width="480" height="20" alt="divider (1)" src="https://github.com/user-attachments/assets/15440338-8a4d-45ca-8a7e-5a09a22bc1d5" />
+
 ᴛʜɪꜱ ᴀᴄᴄᴏᴜɴᴛ ɪꜱ ᴜꜱᴇᴅ ꜰᴏʀ ᴘᴛ!! [ᴘᴏɴʏ ᴛᴏᴡɴ] (ʀᴇᴀᴅ ʙᴇꜰᴏʀᴇ ɪɴᴛᴇʀᴀᴄᴛɪɴɢ)
 
 ᴅᴜᴍʙ 7ᴛᴇᴇɴ -ᴍɪɴᴏʀ- ʟɪᴛᴛʟᴇ ꜱɪʟʟʏ ᴀꜱꜰ ᴀᴜᴅʜᴅ ʙᴏʏɢɪʀʟᴛʜɪɴɢ [ᴀɴʏ ᴘʀᴏɴᴏᴜɴꜱ] #𝙏𝙃𝙀𝘿𝘼𝙍𝙆𝙇𝙊𝙍𝘿𝙎𝙄𝙈𝙋 #ˢᴴᴬᴿᴷᶠᴵᶜᵀᴵⱽᴱ https://scarriotzz1x4.straw.page
