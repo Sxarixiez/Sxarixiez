@@ -6,7 +6,7 @@
  
  $${\color{Yellow}"And yet, I still feel nothing."}$$ 
 
-[![spotify-github-profile](<img width="320" height="100" alt="image" src="https://github.com/user-attachments/assets/ee96dcce-c8a6-4bb2-a981-76324b9eaec3" />
+[![spotify-github-profile](https://open.spotify.com/track/2G2p23uIuSpuGPO8KhEZv5?si=6584da1bd5e942e5
 
 
 <img width="1000" height="243" alt="image" src="https://github.com/user-attachments/assets/100192bb-eee0-4435-8612-f3a1168bb24d" />
