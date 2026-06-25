@@ -84,6 +84,8 @@ Fandoms; undertale/deltarune, Forsaken, Regretevator, Phighthing, Friday Night F
 <img width="735" height="856" alt="image" src="https://github.com/user-attachments/assets/f6248636-6476-4e93-836b-3f00cb45a39d" />
 [this is the old about me I'm 17 years old now.]
 <img width="480" height="20" alt="divider (1)" src="https://github.com/user-attachments/assets/15440338-8a4d-45ca-8a7e-5a09a22bc1d5" />
+<img width="1499" height="360" alt="image" src="https://github.com/user-attachments/assets/56bfbf1e-12c7-4ecf-9148-9ecb1ddfb635" />
+
 <!--
 **Sxarixiez/Sxarixiez** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
