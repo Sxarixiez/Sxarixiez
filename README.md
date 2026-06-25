@@ -4,8 +4,8 @@
 
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/b970ef1d-eaa4-4078-90bf-0c2f9cec5c4e" />
 
- $${\color{Yellow}"And yet, I still feel nothing."}$$ <img  
-                                                       width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/7ebbb897-b410-4cf7-a489-d204766e3ec7" />
+ $${\color{Yellow}"And yet, I still feel nothing."}$$ 
+ <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/7ebbb897-b410-4cf7-a489-d204766e3ec7" />
 
 
 <img width="1000" height="243" alt="image" src="https://github.com/user-attachments/assets/100192bb-eee0-4435-8612-f3a1168bb24d" />
