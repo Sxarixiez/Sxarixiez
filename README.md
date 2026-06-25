@@ -22,7 +22,7 @@ $${\color{Yellow}"And yet, I still feel nothing."}$$
 
 <img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/abc17c2e-39cd-4c36-b978-63c2e0d1c5fe" /> 
 <img width="350" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
-$\color{#FF00C2}{\text{ "MY HYPOTHESIS WAS CORRECT!!"}}$
+
 丂乂卂尺乂丨尺丨乇 !!1 ᵁᴿ ᴸᴼᶜᴬᴸ ᴾᵁᴺᴷ/ᴹᴱᵀᴬᴸ ᴱᴺᴶᴼʸᴱᴿ
 
 YOUR CERTIFIED PUNK MUSIC AND METALHEAD ENJOYER‼️💢
@@ -37,6 +37,9 @@ YOUR CERTIFIED PUNK MUSIC AND METALHEAD ENJOYER‼️💢
 <img width="350" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
 <img width="477" height="100" alt="image" src="https://github.com/user-attachments/assets/73fbb0a9-e1ab-4da3-be00-8f0045882b1c" />
 <img width="478" height="498" alt="1x1fromtheoreoflavorssystem" src="https://github.com/user-attachments/assets/2bcf8b32-2ee6-4190-a2a9-5d40a7d35f3e" />
+
+$\color{#FF00C2}{\text{ "MY HYPOTHESIS WAS CORRECT!!"}}$
+
 <img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/3450a4b4-ee64-4740-89f0-1abfa38a865a" />
 
 <img width="735" height="427" alt="image" src="https://github.com/user-attachments/assets/ce6c959f-ec68-4318-ba65-28dffedecd88" />
