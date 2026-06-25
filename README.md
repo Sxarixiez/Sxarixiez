@@ -22,7 +22,7 @@ $${\color{Yellow}"And yet, I still feel nothing."}$$
 
 <img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/abc17c2e-39cd-4c36-b978-63c2e0d1c5fe" /> 
 <img width="350" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
-
+$\color{#FF00C2}{\text{ "MY HYPOTHESIS WAS CORRECT!!"}}$
 丂乂卂尺乂丨尺丨乇 !!1 ᵁᴿ ᴸᴼᶜᴬᴸ ᴾᵁᴺᴷ/ᴹᴱᵀᴬᴸ ᴱᴺᴶᴼʸᴱᴿ
 
 YOUR CERTIFIED PUNK MUSIC AND METALHEAD ENJOYER‼️💢
