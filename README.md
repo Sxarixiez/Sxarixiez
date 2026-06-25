@@ -2,7 +2,9 @@
 
 <img width="736" height="414" alt="WhatsApp Image 2026-06-25 at 12 22 47 (15)" src="https://github.com/user-attachments/assets/14c99f66-620f-4cf2-9fa0-f7c474c96c0a" /> 
 
-$${\color{Yellow}"And yet, I still feel nothing."}$$ 
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/b970ef1d-eaa4-4078-90bf-0c2f9cec5c4e" />
+$${\color{Yellow}"And yet, I still feel nothing."}$$ <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/7ebbb897-b410-4cf7-a489-d204766e3ec7" />
+
 
 <img width="1000" height="243" alt="image" src="https://github.com/user-attachments/assets/100192bb-eee0-4435-8612-f3a1168bb24d" />
 
