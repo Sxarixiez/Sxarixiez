@@ -53,7 +53,7 @@ multifandomer + autistic + has adhd + he/him/all/she/her/they/them/xe/xem/xyr + 
 
 $${\color{Green}"Ring around the rosie, Pocket full of posiess"}$$
 
-$\color{#FF00C2}{\text{Custom Hex Code Color}}$
+$\color{#FF00C2}{\text{ "MY HYPOTHESIS WAS CORRECT!!"}}$
 
 
 
