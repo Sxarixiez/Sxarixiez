@@ -5,6 +5,7 @@
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/b970ef1d-eaa4-4078-90bf-0c2f9cec5c4e" />
 
  $${\color{Yellow}"And yet, I still feel nothing."}$$ 
+
  <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/7ebbb897-b410-4cf7-a489-d204766e3ec7" />
 
 
