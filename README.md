@@ -2,7 +2,7 @@
 
 $${\color{Yellow}"And yet, I still feel nothing."}$$
 
-<iframe https://open.spotify.com/embed/playlist/7JNdKPjwKLaFnLt6QB8ne6?utm_source=generator&si=aee082bf7a7f4f76 >/iframe>
+
 
 <img width="480" height="20" alt="divider (1)" src="https://github.com/user-attachments/assets/15440338-8a4d-45ca-8a7e-5a09a22bc1d5" />
 
