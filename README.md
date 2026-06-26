@@ -8,6 +8,7 @@
 ![Static Badge](https://img.shields.io/badge/HEAVY%20SHARK%20AND%20CROCOALLIGATOR%20HYPERFIXATION-cyan%20)
 ![Static Badge](https://img.shields.io/badge/THIS%20SILLY%20BOY%20CAN%20BITE%20PLEASE%20DO%20CAUTION-red)
 ![Static Badge](https://img.shields.io/badge/%22Lowest%20body%20count%20eats%20a%20missile!%22-yellow)
+![Static Badge](https://img.shields.io/badge/Heavy%20INSANE%20CLOWN%20POSSE%20FAN!!1-black)
 
 
 <img width="736" height="414" alt="WhatsApp Image 2026-06-25 at 12 22 47 (15)" src="https://github.com/user-attachments/assets/14c99f66-620f-4cf2-9fa0-f7c474c96c0a" /> 
