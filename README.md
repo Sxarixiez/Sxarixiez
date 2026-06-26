@@ -1,6 +1,6 @@
 <img width="1499" height="360" alt="image" src="https://github.com/user-attachments/assets/e95ba25d-5a5a-45a6-bd7b-ffea605edbbe" />
 
-![Static Badge](https://img.shields.io/badge/SXARXIEEZ!!1-SCAR%2FRIOT%2FCOZMO-red)
+![Static Badge](https://img.shields.io/badge/SXARIXIEEZ!!1-SCAR%2FRIOT%2FCOZMO-red)
 ![Static Badge](https://img.shields.io/badge/KILL%20COUNT-400%2B-yellow)
 ![Static Badge](https://img.shields.io/badge/Slay%20Days-8000%2B-yellow)
 ![Static Badge](https://img.shields.io/badge/CHAINSAW%20TIMEE-yellow)
