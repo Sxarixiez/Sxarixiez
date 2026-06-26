@@ -1,6 +1,7 @@
 <img width="1499" height="360" alt="image" src="https://github.com/user-attachments/assets/e95ba25d-5a5a-45a6-bd7b-ffea605edbbe" />
 
 ![Static Badge](https://img.shields.io/badge/KILL%20COUNT-400%2B-yellow)
+![Static Badge](https://img.shields.io/badge/Slay%20Days-8000%2B-yellow)
 
 
 <img width="736" height="414" alt="WhatsApp Image 2026-06-25 at 12 22 47 (15)" src="https://github.com/user-attachments/assets/14c99f66-620f-4cf2-9fa0-f7c474c96c0a" /> 
