@@ -57,7 +57,7 @@ $\color{#4BD200}{\text{"Curse this inferior dimension."}}$
 
 Hi I'm icry, miles, edge, miller, cosmo, arachna I have so many names call me whatever you want or burak bcz I'm from turkiye 
 
-ENTP | current comfort fandoms; ultrakill, undertale/deltarune, psychopomp, crk, sally face, murder drones, tadc 
+ENTP | current comfort fandoms; ultrakill, undertale/deltarune, psychopomp, crk, sally face, murder drones, tadc | Gamzee Makara, Bluudud, C00lkidd, Pr3typriincess, Guita, Rudo, Frisk, Chara are my fictional children
 
 multifandomer + autistic + has adhd + he/him/all/she/her/they/them/xe/xem/xyr + aroace (aromantic asexual)
 
