@@ -5,6 +5,7 @@
 <img width="20" height="20" alt="886c2fe0" src="https://github.com/user-attachments/assets/5de80f13-b868-4585-9147-f0cc42d44244" />
  
  $${\color{Yellow}"And yet, I still feel nothing."}$$ 
+
 <img width="400" height="400" alt="ena-ena-dream-bbq" src="https://github.com/user-attachments/assets/055e9a36-9acd-4110-97c2-455aa5868533" />
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=wh95bd2d2nzt9nw0o7ozlsule&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)  <img width="150" height="150" alt="jevil-delatrune" src="https://github.com/user-attachments/assets/b1fca7f8-2bbf-46fd-b90a-b1b80f2a3cd9" /><img width="150" height="150" alt="deltarune-susie" src="https://github.com/user-attachments/assets/8269458c-de58-4e3c-8774-6b9bb36ea79c" />
