@@ -2,6 +2,7 @@
 
 ![Static Badge](https://img.shields.io/badge/KILL%20COUNT-400%2B-yellow)
 ![Static Badge](https://img.shields.io/badge/Slay%20Days-8000%2B-yellow)
+![Static Badge](https://img.shields.io/badge/CHAINSAW%20TIMEE-yellow)
 
 
 <img width="736" height="414" alt="WhatsApp Image 2026-06-25 at 12 22 47 (15)" src="https://github.com/user-attachments/assets/14c99f66-620f-4cf2-9fa0-f7c474c96c0a" /> 
