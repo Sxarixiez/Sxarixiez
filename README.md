@@ -60,7 +60,8 @@ YOUR CERTIFIED PUNK MUSIC AND METALHEAD ENJOYER‼️💢
 <img width="477" height="100" alt="image" src="https://github.com/user-attachments/assets/73fbb0a9-e1ab-4da3-be00-8f0045882b1c" />
 <img width="478" height="498" alt="1x1fromtheoreoflavorssystem" src="https://github.com/user-attachments/assets/2bcf8b32-2ee6-4190-a2a9-5d40a7d35f3e" />
 
-$\color{#4BD200}{\text{"Curse this inferior dimension."}}$
+![Static Badge](https://img.shields.io/badge/%22Curse%20this%20inferior%20dimension.%22-green)
+
 
 <img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/3450a4b4-ee64-4740-89f0-1abfa38a865a" />
 
