@@ -5,7 +5,7 @@
 <img width="20" height="20" alt="886c2fe0" src="https://github.com/user-attachments/assets/5de80f13-b868-4585-9147-f0cc42d44244" />
  
  $${\color{Yellow}"And yet, I still feel nothing."}$$ 
-
+<img width="400" height="400" alt="ena-ena-dream-bbq" src="https://github.com/user-attachments/assets/055e9a36-9acd-4110-97c2-455aa5868533" />
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=wh95bd2d2nzt9nw0o7ozlsule&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)  <img width="150" height="150" alt="jevil-delatrune" src="https://github.com/user-attachments/assets/b1fca7f8-2bbf-46fd-b90a-b1b80f2a3cd9" /><img width="150" height="150" alt="deltarune-susie" src="https://github.com/user-attachments/assets/8269458c-de58-4e3c-8774-6b9bb36ea79c" />
 <img width="300" height="40" alt="sick-hell" src="https://github.com/user-attachments/assets/d9b9625d-56e3-4dde-9cb7-d2aea0708832" /><img width="99" height="56" alt="blinkies-hatsune-miku" src="https://github.com/user-attachments/assets/486dd61f-f13f-459a-a019-ee8b61ad70cf" />
  <img width="99" height="56" alt="blinkies (7)" src="https://github.com/user-attachments/assets/377295de-09d3-47bb-a154-8f88f21d7bfe" /><img width="100" height="50" alt="blinkies-needy-streamer-overload" src="https://github.com/user-attachments/assets/e97e1305-4845-4dc4-866d-b77e21d71243" /> 
