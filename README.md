@@ -78,7 +78,8 @@ multifandomer + autistic + has adhd + he/him/all/she/her/they/them/xe/xem/xyr + 
 
 
 
-$${\color{Green}"Ring around the rosie, Pocket full of posiess"}$$
+![Static Badge](https://img.shields.io/badge/%22%20R%20i%20n%20g%20a%20r%20o%20u%20n%20d%20t%20h%20e%20r%20o%20s%20i%20e%20%2C%20P%20o%20c%20k%20e%20t%20f%20u%20l%20l%20o%20f%20p%20o%20s%20i%20e%20s%20s%20%22-green)
+
 
 $\color{#FF00C2}{\text{ "MY HYPOTHESIS WAS CORRECT!!"}}$
 
