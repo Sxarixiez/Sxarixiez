@@ -2,7 +2,6 @@
 
 ![Static Badge](https://img.shields.io/badge/Gamzee%20Makara%20%F0%9F%A4%A1%20-purple)
 ![Static Badge](https://img.shields.io/badge/Gamzee%20itself%20%F0%9F%A4%A1%20-purple)
-
 ![Static Badge](https://img.shields.io/badge/whats%20a%20clown%20to%20ya%3F%20madafakaa!!1%20%F0%9F%A4%A1%20-purple)
 ![Static Badge](https://img.shields.io/badge/pronouns%3A%20it%2Fhe%2Fxe%2Fxyr%2Fshe%2Fany%20%F0%9F%A4%A1%20-purple)
 
