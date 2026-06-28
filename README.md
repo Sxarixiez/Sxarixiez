@@ -5,6 +5,7 @@
 <img width="99" height="56" alt="tumblr_019c261605412c1d8c65287fbe21e130_2a2f8279_100" src="https://github.com/user-attachments/assets/e8fae73c-9495-462a-bc65-a34fa3754158" />
 <img width="99" height="56" alt="tumblr_1df1fd0055aa4a3f267d22b3abaa0464_3e144cd9_100" src="https://github.com/user-attachments/assets/81d8dcbb-947e-49a2-8582-d226d934b5a1" />
 
+
 ![Static Badge](https://img.shields.io/badge/SXARIXIEEZ!!1-SCAR%2FRIOT%2FCOZMO-red)
 ![Static Badge](https://img.shields.io/badge/KILL%20COUNT-400%2B-yellow)
 ![Static Badge](https://img.shields.io/badge/Slay%20Days-8000%2B-yellow)
