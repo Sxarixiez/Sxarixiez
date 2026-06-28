@@ -6,7 +6,7 @@
 <img width="700" height="170" alt="tumblr_4c5db76088cb42bb82292317dbd5d315_e217a598_1280" src="https://github.com/user-attachments/assets/81fb5de5-cefd-4e1a-a281-d286cef06c32" />
 <img width="800" height="286" alt="tumblr_3a8174b8e523bba1ba33c1b598801da7_53b70456_1280" src="https://github.com/user-attachments/assets/8bcf44fd-f4f6-4d92-8454-fd050c1f8a68" />
 
-<img width="735" height="295" alt="tumblr_13235e3009ee58d4355c9c9f3dc95b7b_f400a6a3_1280" src="https://github.com/user-attachments/assets/809d855c-a86e-43f3-9faa-d8984d824504" />
+
 
 <img width="800" height="106" alt="tumblr_605e178c60a5aa989d5c7d15e3b07d40_0e577910_1280" src="https://github.com/user-attachments/assets/f3e88ccb-42e7-4ffd-928d-344e9e227042" /> 
 <img width="1499" height="360" alt="image" src="https://github.com/user-attachments/assets/e95ba25d-5a5a-45a6-bd7b-ffea605edbbe" />
