@@ -1,6 +1,6 @@
 <img width="1499" height="360" alt="image" src="https://github.com/user-attachments/assets/e95ba25d-5a5a-45a6-bd7b-ffea605edbbe" />
 <img width="498" height="461" alt="tumblr_68420cc8c50df1d8f31e34f853b2e728_c4f0f8ed_500" src="https://github.com/user-attachments/assets/8e1a2fca-d132-4e6a-997d-80391dd07a18" />
-
+<img width="947" height="218" alt="tumblr_2d1a124b8d8e6cade27bcce266d69caa_debe317c_1280" src="https://github.com/user-attachments/assets/d677a846-235e-4edb-b288-0af1727c2b4d" />
 ![Static Badge](https://img.shields.io/badge/SXARIXIEEZ!!1-SCAR%2FRIOT%2FCOZMO-red)
 ![Static Badge](https://img.shields.io/badge/KILL%20COUNT-400%2B-yellow)
 ![Static Badge](https://img.shields.io/badge/Slay%20Days-8000%2B-yellow)
