@@ -1,6 +1,7 @@
 <img width="1499" height="360" alt="image" src="https://github.com/user-attachments/assets/e95ba25d-5a5a-45a6-bd7b-ffea605edbbe" />
 
-![Static Badge](https://img.shields.io/badge/Gamzee%20Makara%20%3Ao)-purple)
+![Static Badge](https://img.shields.io/badge/Gamzee%20Makara%20%F0%9F%A4%A1%20-purple)
+
 
 
 
