@@ -74,7 +74,9 @@ YOUR CERTIFIED PUNK MUSIC AND METALHEAD ENJOYER‼️💢
 
 ![Static Badge](https://img.shields.io/badge/%22Curse%20this%20inferior%20dimension.%22-green)
 
-
+<img width="150" height="20" alt="tumblr_c3a825d2df91105347a7a944d379192f_1c019095_250" src="https://github.com/user-attachments/assets/7df94770-d636-4afa-9bbe-25598b7aa4c2" />
+<img width="150" height="20" alt="tumblr_97180ef550bcd4812564a2afacee4725_3e473857_250" src="https://github.com/user-attachments/assets/9c94ca3d-3df7-4405-ad42-7cccd95373ee" />
+<img width="426" height="70" alt="tumblr_619608ccfddc54f1c2d2cfc7c6203ede_3a018de4_500" src="https://github.com/user-attachments/assets/4ab58c8a-789b-4bdb-a352-2c45f22389da" />
 
 <img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/3450a4b4-ee64-4740-89f0-1abfa38a865a" />
 
