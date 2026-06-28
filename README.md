@@ -2,6 +2,7 @@
 <img width="100" height="30" alt="tumblr_605e178c60a5aa989d5c7d15e3b07d40_0e577910_1280" src="https://github.com/user-attachments/assets/f3e88ccb-42e7-4ffd-928d-344e9e227042" /> 
 
 ![Static Badge](https://img.shields.io/badge/%E2%80%BC%EF%B8%8FKILLER%20SANS%20ROLEPLAY%20THINGY%E2%80%BC%EF%B8%8F(and%20if%20I%20roleplay%20as%20him)-black)
+
 ![Static Badge](https://img.shields.io/badge/%F0%9F%A9%B8killer%2Fkillz%2Fkitty-red)
 
 <img width="1640" height="856" alt="tumblr_cb58537bf0494ca2a24c3b213736d06d_1e3e2c9b_2048" src="https://github.com/user-attachments/assets/c99a1df5-c415-440a-ba38-c142677d20b8" />
