@@ -1,5 +1,5 @@
 <img width="1499" height="360" alt="image" src="https://github.com/user-attachments/assets/e95ba25d-5a5a-45a6-bd7b-ffea605edbbe" />
-![Static Badge](https://img.shields.io/badge/GAMZEE%20MAKARA%20itself%20%3Ao)-purple)
+![Static Badge](https://img.shields.io/badge/GAMZEE%20MAKARA%20itself%20%3Ao)-purple) 
 
 <img width="498" height="461" alt="tumblr_68420cc8c50df1d8f31e34f853b2e728_c4f0f8ed_500" src="https://github.com/user-attachments/assets/8e1a2fca-d132-4e6a-997d-80391dd07a18" />
 <img width="1000" height="218" alt="tumblr_a2497c975b878e4b0ac5bbc43b09a9ab_469ed4bd_1280" src="https://github.com/user-attachments/assets/4778d41c-fd26-4bbc-9e26-04b976cdf291" />
