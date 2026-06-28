@@ -1,3 +1,7 @@
+<img width="1000" height="218" alt="tumblr_a2497c975b878e4b0ac5bbc43b09a9ab_469ed4bd_1280" src="https://github.com/user-attachments/assets/4778d41c-fd26-4bbc-9e26-04b976cdf291" />
+<img width="150" height="20" alt="tumblr_c3a825d2df91105347a7a944d379192f_1c019095_250" src="https://github.com/user-attachments/assets/7df94770-d636-4afa-9bbe-25598b7aa4c2" />
+<img width="150" height="20" alt="tumblr_97180ef550bcd4812564a2afacee4725_3e473857_250" src="https://github.com/user-attachments/assets/9c94ca3d-3df7-4405-ad42-7cccd95373ee" />
+<img width="426" height="70" alt="tumblr_619608ccfddc54f1c2d2cfc7c6203ede_3a018de4_500" src="https://github.com/user-attachments/assets/4ab58c8a-789b-4bdb-a352-2c45f22389da" />
 <img width="1499" height="360" alt="image" src="https://github.com/user-attachments/assets/e95ba25d-5a5a-45a6-bd7b-ffea605edbbe" />
 <img width="498" height="461" alt="tumblr_68420cc8c50df1d8f31e34f853b2e728_c4f0f8ed_500" src="https://github.com/user-attachments/assets/8e1a2fca-d132-4e6a-997d-80391dd07a18" />
 <img width="947" height="218" alt="tumblr_2d1a124b8d8e6cade27bcce266d69caa_debe317c_1280" src="https://github.com/user-attachments/assets/d677a846-235e-4edb-b288-0af1727c2b4d" />
@@ -115,6 +119,7 @@ Fandoms; undertale/deltarune, Forsaken, Regretevator, Phighthing, Friday Night F
 <img width="735" height="856" alt="image" src="https://github.com/user-attachments/assets/f6248636-6476-4e93-836b-3f00cb45a39d" />
 [this is the old about me I'm 17 years old now.]
 <img width="480" height="20" alt="divider (1)" src="https://github.com/user-attachments/assets/15440338-8a4d-45ca-8a7e-5a09a22bc1d5" />
+<img width="2048" height="200" alt="tumblr_833c5c0557f22fe913ebba3cbbee74f3_64a541b2_2048" src="https://github.com/user-attachments/assets/88459a3b-4d8a-4183-8940-90938702b391" />
 <img width="1499" height="360" alt="image" src="https://github.com/user-attachments/assets/56bfbf1e-12c7-4ecf-9148-9ecb1ddfb635" />
 
 <!--
