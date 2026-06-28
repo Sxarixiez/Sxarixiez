@@ -5,6 +5,8 @@
 
 ![Static Badge](https://img.shields.io/badge/%F0%9F%A9%B8killer%2Fkillz%2Fkitty-red)
 
+![Static Badge](https://img.shields.io/badge/dni%20nightmarekiller%20shippers(thats%20too%20dark%20for%20me..)-red)
+
 <img width="1640" height="856" alt="tumblr_cb58537bf0494ca2a24c3b213736d06d_1e3e2c9b_2048" src="https://github.com/user-attachments/assets/c99a1df5-c415-440a-ba38-c142677d20b8" />
 <img width="800" height="321" alt="tumblr_5c8271a0aadee040cf765e4acc92748f_d4cda018_1280" src="https://github.com/user-attachments/assets/cf058cdf-d8a3-432f-aa16-2cb7fc3b46b2" />
 
