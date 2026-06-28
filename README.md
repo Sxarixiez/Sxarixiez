@@ -1,14 +1,10 @@
-<img width="1000" height="218" alt="tumblr_a2497c975b878e4b0ac5bbc43b09a9ab_469ed4bd_1280" src="https://github.com/user-attachments/assets/4778d41c-fd26-4bbc-9e26-04b976cdf291" />
-<img width="150" height="20" alt="tumblr_c3a825d2df91105347a7a944d379192f_1c019095_250" src="https://github.com/user-attachments/assets/7df94770-d636-4afa-9bbe-25598b7aa4c2" />
-<img width="150" height="20" alt="tumblr_97180ef550bcd4812564a2afacee4725_3e473857_250" src="https://github.com/user-attachments/assets/9c94ca3d-3df7-4405-ad42-7cccd95373ee" />
-<img width="426" height="70" alt="tumblr_619608ccfddc54f1c2d2cfc7c6203ede_3a018de4_500" src="https://github.com/user-attachments/assets/4ab58c8a-789b-4bdb-a352-2c45f22389da" />
 <img width="1499" height="360" alt="image" src="https://github.com/user-attachments/assets/e95ba25d-5a5a-45a6-bd7b-ffea605edbbe" />
 <img width="498" height="461" alt="tumblr_68420cc8c50df1d8f31e34f853b2e728_c4f0f8ed_500" src="https://github.com/user-attachments/assets/8e1a2fca-d132-4e6a-997d-80391dd07a18" />
 <img width="947" height="218" alt="tumblr_2d1a124b8d8e6cade27bcce266d69caa_debe317c_1280" src="https://github.com/user-attachments/assets/d677a846-235e-4edb-b288-0af1727c2b4d" />
 <img width="99" height="56" alt="tumblr_040b279fc45eeee5e964ac60a7c96307_cfb67ddd_100" src="https://github.com/user-attachments/assets/991c2a4e-6321-40c3-90f6-94b8fc71ff9e" />
 <img width="99" height="56" alt="tumblr_019c261605412c1d8c65287fbe21e130_2a2f8279_100" src="https://github.com/user-attachments/assets/e8fae73c-9495-462a-bc65-a34fa3754158" />
 <img width="99" height="56" alt="tumblr_1df1fd0055aa4a3f267d22b3abaa0464_3e144cd9_100" src="https://github.com/user-attachments/assets/81d8dcbb-947e-49a2-8582-d226d934b5a1" />
-
+<img width="1000" height="218" alt="tumblr_a2497c975b878e4b0ac5bbc43b09a9ab_469ed4bd_1280" src="https://github.com/user-attachments/assets/4778d41c-fd26-4bbc-9e26-04b976cdf291" />
 
 ![Static Badge](https://img.shields.io/badge/SXARIXIEEZ!!1-SCAR%2FRIOT%2FCOZMO-red)
 ![Static Badge](https://img.shields.io/badge/KILL%20COUNT-400%2B-yellow)
