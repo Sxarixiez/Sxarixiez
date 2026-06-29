@@ -44,7 +44,7 @@
 
 
 <img width="700" height="170" alt="tumblr_4c5db76088cb42bb82292317dbd5d315_e217a598_1280" src="https://github.com/user-attachments/assets/81fb5de5-cefd-4e1a-a281-d286cef06c32" />
-<img width="618" height="60" alt="tumblr_9961a204674f1c72e7af2725e336a066_589a7b0b_640" src="https://github.com/user-attachments/assets/2851d34c-2602-4cdb-bbd2-e64b2d3f781f" />
+<img width="1499" height="360" alt="tumblr_9961a204674f1c72e7af2725e336a066_589a7b0b_640" src="https://github.com/user-attachments/assets/2851d34c-2602-4cdb-bbd2-e64b2d3f781f" />
 <img width="1499" height="360" alt="image" src="https://github.com/user-attachments/assets/e95ba25d-5a5a-45a6-bd7b-ffea605edbbe" />
 
 ![Static Badge](https://img.shields.io/badge/Gamzee%20Makara%20%F0%9F%A4%A1%20-purple)
