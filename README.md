@@ -7,6 +7,8 @@
 
 ![Static Badge](https://img.shields.io/badge/dni%20nightmarekiller%20shippers(thats%20too%20dark%20for%20me..)-red)
 
+![Static Badge](https://img.shields.io/badge/also%20you%20can%20int%20w%20me%20if%20youre%20a%20colorkiller%20shipper-red)
+
 ![Static Badge](https://img.shields.io/badge/if%20ur%20roleplaying%20as%20one%20of%20badguys(horror%2Cdust%2Fmurder%20etc)%20you%20can%20c%2Bh%20w%20me%20freely-red)
 
 ![Static Badge](https://img.shields.io/badge/in%20the%20roleplay%20do%20not%20get%20flirty%20w%20me%20as%20Im%20an%20aroace%20person-red)
