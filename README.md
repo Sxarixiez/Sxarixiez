@@ -1,3 +1,4 @@
+<img width="618" height="60" alt="tumblr_a96517729232fd1e21bbc911a3e428c5_cb7e5325_640" src="https://github.com/user-attachments/assets/c7524ad7-d7f1-499d-9c76-3f468e0501c4" />
 <img width="735" height="295" alt="tumblr_13235e3009ee58d4355c9c9f3dc95b7b_f400a6a3_1280" src="https://github.com/user-attachments/assets/809d855c-a86e-43f3-9faa-d8984d824504" />
 <img width="618" height="400" alt="tumblr_d96406df48b1874bbe05f62079173cf1_273965d9_640" src="https://github.com/user-attachments/assets/00721ec0-dbce-4578-a4e9-109c12a865e4" />
 <img width="90" height="30" alt="tumblr_3a8174b8e523bba1ba33c1b598801da7_53b70456_1280" src="https://github.com/user-attachments/assets/8bcf44fd-f4f6-4d92-8454-fd050c1f8a68" />
@@ -43,6 +44,7 @@
 
 
 <img width="700" height="170" alt="tumblr_4c5db76088cb42bb82292317dbd5d315_e217a598_1280" src="https://github.com/user-attachments/assets/81fb5de5-cefd-4e1a-a281-d286cef06c32" />
+<img width="618" height="60" alt="tumblr_9961a204674f1c72e7af2725e336a066_589a7b0b_640" src="https://github.com/user-attachments/assets/2851d34c-2602-4cdb-bbd2-e64b2d3f781f" />
 <img width="1499" height="360" alt="image" src="https://github.com/user-attachments/assets/e95ba25d-5a5a-45a6-bd7b-ffea605edbbe" />
 
 ![Static Badge](https://img.shields.io/badge/Gamzee%20Makara%20%F0%9F%A4%A1%20-purple)
