@@ -4,6 +4,7 @@
 <img width="200" height="30" alt="tumblr_605e178c60a5aa989d5c7d15e3b07d40_0e577910_1280" src="https://github.com/user-attachments/assets/f3e88ccb-42e7-4ffd-928d-344e9e227042" />
 ![Static Badge](https://img.shields.io/badge/killed%20individuals-600%2B-red)
 
+
 <img width="99" height="56" alt="tumblr_9d6a481d8cc6891ecf38f0c5c4fda5a1_ba7f093b_100" src="https://github.com/user-attachments/assets/9e819523-b2c3-4e8e-8e31-5205d211fb69" />
 <img width="99" height="56" alt="tumblr_0a0bbd1074c28d4d1ce01f2ac3991f96_76f4e474_100" src="https://github.com/user-attachments/assets/cc41065d-188f-4e95-844c-bf362c6754f2" />
 <img width="99" height="56" alt="tumblr_9942d558b06384c19c743e339463177e_0f34b336_100" src="https://github.com/user-attachments/assets/7061d6c3-13e0-4c18-b528-1e6198081139" />
