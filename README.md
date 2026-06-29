@@ -29,6 +29,8 @@
 
 ![Static Badge](https://img.shields.io/badge/other%20than%20that%20its%20okay%20to%20int%20freely%E2%80%BC%EF%B8%8F-black)
 
+![Static Badge](https://img.shields.io/badge/also%20read%20the%20%22protects%20this%20blog%22%20thingy%20and%20we're%20okay%20for%20the%20roleplay%20thingy%20-black)
+
 
 <img width="700" height="170" alt="tumblr_4c5db76088cb42bb82292317dbd5d315_e217a598_1280" src="https://github.com/user-attachments/assets/81fb5de5-cefd-4e1a-a281-d286cef06c32" />
 <img width="1499" height="360" alt="image" src="https://github.com/user-attachments/assets/e95ba25d-5a5a-45a6-bd7b-ffea605edbbe" />
