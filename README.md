@@ -1,4 +1,3 @@
-<img width="1499" height="60" alt="tumblr_a96517729232fd1e21bbc911a3e428c5_cb7e5325_640" src="https://github.com/user-attachments/assets/c7524ad7-d7f1-499d-9c76-3f468e0501c4" />
 <img width="735" height="295" alt="tumblr_13235e3009ee58d4355c9c9f3dc95b7b_f400a6a3_1280" src="https://github.com/user-attachments/assets/809d855c-a86e-43f3-9faa-d8984d824504" />
 <img width="618" height="400" alt="tumblr_d96406df48b1874bbe05f62079173cf1_273965d9_640" src="https://github.com/user-attachments/assets/00721ec0-dbce-4578-a4e9-109c12a865e4" />
 <img width="90" height="30" alt="tumblr_3a8174b8e523bba1ba33c1b598801da7_53b70456_1280" src="https://github.com/user-attachments/assets/8bcf44fd-f4f6-4d92-8454-fd050c1f8a68" />
@@ -6,7 +5,7 @@
 
 ![Static Badge](https://img.shields.io/badge/killed%20individuals-600%2B-red)
 
-
+<img width="1499" height="60" alt="tumblr_a96517729232fd1e21bbc911a3e428c5_cb7e5325_640" src="https://github.com/user-attachments/assets/c7524ad7-d7f1-499d-9c76-3f468e0501c4" />
 
 <img width="99" height="56" alt="tumblr_9d6a481d8cc6891ecf38f0c5c4fda5a1_ba7f093b_100" src="https://github.com/user-attachments/assets/9e819523-b2c3-4e8e-8e31-5205d211fb69" />
 <img width="99" height="56" alt="tumblr_0a0bbd1074c28d4d1ce01f2ac3991f96_76f4e474_100" src="https://github.com/user-attachments/assets/cc41065d-188f-4e95-844c-bf362c6754f2" />
@@ -26,6 +25,7 @@
 
 ![Static Badge](https://img.shields.io/badge/I%20might%20get%20freaky%20sometimes%20so%20be%20cautioned%20w%20me%20..%20idk%20why%20Im%20writing%20we%20are%20roleplaying%20brah%20but%20yeah-red)
 
+<img width="1499" height="60" alt="tumblr_a96517729232fd1e21bbc911a3e428c5_cb7e5325_640" src="https://github.com/user-attachments/assets/c7524ad7-d7f1-499d-9c76-3f468e0501c4" />
 <img width="1640" height="856" alt="tumblr_cb58537bf0494ca2a24c3b213736d06d_1e3e2c9b_2048" src="https://github.com/user-attachments/assets/c99a1df5-c415-440a-ba38-c142677d20b8" />
 
 ![Static Badge](https://img.shields.io/badge/this%20ones%20arent%20for%20roleplay%20just%20writing%20it%20..-red)
@@ -34,6 +34,7 @@
 
 ![Static Badge](https://img.shields.io/badge/I%20JUST%20LOVE%20HIM%20SO%20MUCH%20ITS%20LIKE%20A%20OBSESSION%20I%20WANNA%20WRITE%20A%20FANFICTION%20JUST%20FOR%20HIM%20IM%20A%20MOTHERFUCKIN%20SIMP%20FOR%20HIM%20LIKE%20DUDE..%20DOSE%20DRIPPING%20BLACK%20HATE%20FROM%20THE%20EYES%20OH%20MY%20FUCKING%20GODD!!!-black)
 
+<img width="1499" height="60" alt="tumblr_a96517729232fd1e21bbc911a3e428c5_cb7e5325_640" src="https://github.com/user-attachments/assets/c7524ad7-d7f1-499d-9c76-3f468e0501c4" />
 
 <img width="800" height="321" alt="tumblr_5c8271a0aadee040cf765e4acc92748f_d4cda018_1280" src="https://github.com/user-attachments/assets/cf058cdf-d8a3-432f-aa16-2cb7fc3b46b2" />
 
@@ -54,7 +55,7 @@
 ![Static Badge](https://img.shields.io/badge/pronouns%3A%20it%2Fhe%2Fxe%2Fxyr%2Fshe%2Fany%20%F0%9F%A4%A1%20-purple)
 
 
-
+<img width="1499" height="60" alt="tumblr_a96517729232fd1e21bbc911a3e428c5_cb7e5325_640" src="https://github.com/user-attachments/assets/c7524ad7-d7f1-499d-9c76-3f468e0501c4" />
 
 <img width="498" height="461" alt="tumblr_68420cc8c50df1d8f31e34f853b2e728_c4f0f8ed_500" src="https://github.com/user-attachments/assets/8e1a2fca-d132-4e6a-997d-80391dd07a18" />
 <img width="1000" height="218" alt="tumblr_a2497c975b878e4b0ac5bbc43b09a9ab_469ed4bd_1280" src="https://github.com/user-attachments/assets/4778d41c-fd26-4bbc-9e26-04b976cdf291" />
