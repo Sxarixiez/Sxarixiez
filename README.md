@@ -14,6 +14,10 @@
 ![Static Badge](https://img.shields.io/badge/I%20might%20get%20freaky%20sometimes%20so%20be%20cautioned%20w%20me%20..%20idk%20why%20Im%20writing%20we%20are%20roleplaying%20brah%20but%20yeah-red)
 
 <img width="1640" height="856" alt="tumblr_cb58537bf0494ca2a24c3b213736d06d_1e3e2c9b_2048" src="https://github.com/user-attachments/assets/c99a1df5-c415-440a-ba38-c142677d20b8" />
+
+![Static Badge](https://img.shields.io/badge/this%20ones%20arent%20for%20roleplay%20just%20writing%20it%20..-red)
+
+
 <img width="800" height="321" alt="tumblr_5c8271a0aadee040cf765e4acc92748f_d4cda018_1280" src="https://github.com/user-attachments/assets/cf058cdf-d8a3-432f-aa16-2cb7fc3b46b2" />
 
 
