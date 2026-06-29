@@ -1,4 +1,6 @@
-<img width="735" height="295" alt="tumblr_13235e3009ee58d4355c9c9f3dc95b7b_f400a6a3_1280" src="https://github.com/user-attachments/assets/809d855c-a86e-43f3-9faa-d8984d824504" /><img width="90" height="30" alt="tumblr_3a8174b8e523bba1ba33c1b598801da7_53b70456_1280" src="https://github.com/user-attachments/assets/8bcf44fd-f4f6-4d92-8454-fd050c1f8a68" />
+<img width="735" height="295" alt="tumblr_13235e3009ee58d4355c9c9f3dc95b7b_f400a6a3_1280" src="https://github.com/user-attachments/assets/809d855c-a86e-43f3-9faa-d8984d824504" />
+<img width="618" height="400" alt="tumblr_d96406df48b1874bbe05f62079173cf1_273965d9_640" src="https://github.com/user-attachments/assets/00721ec0-dbce-4578-a4e9-109c12a865e4" />
+<img width="90" height="30" alt="tumblr_3a8174b8e523bba1ba33c1b598801da7_53b70456_1280" src="https://github.com/user-attachments/assets/8bcf44fd-f4f6-4d92-8454-fd050c1f8a68" />
 <img width="200" height="30" alt="tumblr_605e178c60a5aa989d5c7d15e3b07d40_0e577910_1280" src="https://github.com/user-attachments/assets/f3e88ccb-42e7-4ffd-928d-344e9e227042" /> ![Static Badge](https://img.shields.io/badge/killed%20individuals-600%2B-red)
 
 <img width="99" height="56" alt="tumblr_9d6a481d8cc6891ecf38f0c5c4fda5a1_ba7f093b_100" src="https://github.com/user-attachments/assets/9e819523-b2c3-4e8e-8e31-5205d211fb69" />
