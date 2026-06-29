@@ -17,6 +17,8 @@
 
 ![Static Badge](https://img.shields.io/badge/this%20ones%20arent%20for%20roleplay%20just%20writing%20it%20..-red)
 
+![Static Badge](https://img.shields.io/badge/I%20LOVE%20KILLER%20SANS%20SO%20MUCH%20LIKE%20I%20WANNA%20LET%20HIM%20KILL%20ME%20OKAY...-red)
+
 
 <img width="800" height="321" alt="tumblr_5c8271a0aadee040cf765e4acc92748f_d4cda018_1280" src="https://github.com/user-attachments/assets/cf058cdf-d8a3-432f-aa16-2cb7fc3b46b2" />
 
