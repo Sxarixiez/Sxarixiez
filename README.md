@@ -9,6 +9,8 @@
 
 ![Static Badge](https://img.shields.io/badge/if%20ur%20roleplaying%20as%20one%20of%20badguys(horror%2Cdust%2Fmurder%20etc)%20you%20can%20c%2Bh%20w%20me%20freely-red)
 
+![Static Badge](https://img.shields.io/badge/in%20the%20roleplay%20do%20not%20get%20flirty%20w%20me%20as%20Im%20an%20aroace%20person-red)
+
 <img width="1640" height="856" alt="tumblr_cb58537bf0494ca2a24c3b213736d06d_1e3e2c9b_2048" src="https://github.com/user-attachments/assets/c99a1df5-c415-440a-ba38-c142677d20b8" />
 <img width="800" height="321" alt="tumblr_5c8271a0aadee040cf765e4acc92748f_d4cda018_1280" src="https://github.com/user-attachments/assets/cf058cdf-d8a3-432f-aa16-2cb7fc3b46b2" />
 
