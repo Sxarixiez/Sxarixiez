@@ -1,5 +1,3 @@
-<img width="317" height="316" alt="Ekran görüntüsü 2026-07-22 120621" src="https://github.com/user-attachments/assets/05432eb4-d012-4ec8-85d0-60d2e93fd4db" />
-<img width="1533" height="576" alt="Ekran görüntüsü 2026-07-19 080142" src="https://github.com/user-attachments/assets/6d970ba7-b5ff-4326-9d62-1cac9b284aed" />
 <img width="735" height="295" alt="tumblr_13235e3009ee58d4355c9c9f3dc95b7b_f400a6a3_1280" src="https://github.com/user-attachments/assets/809d855c-a86e-43f3-9faa-d8984d824504" /><img width="99" height="100" alt="killer-sans-lovkills" src="https://github.com/user-attachments/assets/2aebc84f-51e2-477f-90f3-ac0e7a678b87" /> ![Static Badge](https://img.shields.io/badge/HELLO%2C%20WELCOME%20TO%20MY%20GITHUB%20PAGE%20THIS%20IS%20ONLY%20FOR%20THE%20PONY%20TOWN%20GAME%20SAYING%20IT%20AGAIN%20I%20DONT%20DO%20JOBS%20IM%20A%20MINOR.-yellow)
 
 ![Static Badge](https://img.shields.io/badge/sign%20my%20atabook%20please!!1-yellow)
@@ -193,6 +191,8 @@ Fandoms; undertale/deltarune, Forsaken, Regretevator, Phighthing, Friday Night F
 <img width="2048" height="200" alt="tumblr_833c5c0557f22fe913ebba3cbbee74f3_64a541b2_2048" src="https://github.com/user-attachments/assets/88459a3b-4d8a-4183-8940-90938702b391" />
 <img width="1499" height="360" alt="image" src="https://github.com/user-attachments/assets/56bfbf1e-12c7-4ecf-9148-9ecb1ddfb635" />
 
+<img width="317" height="316" alt="Ekran görüntüsü 2026-07-22 120621" src="https://github.com/user-attachments/assets/05432eb4-d012-4ec8-85d0-60d2e93fd4db" />
+<img width="1533" height="576" alt="Ekran görüntüsü 2026-07-19 080142" src="https://github.com/user-attachments/assets/6d970ba7-b5ff-4326-9d62-1cac9b284aed" />
 <!--
 **Sxarixiez/Sxarixiez** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
