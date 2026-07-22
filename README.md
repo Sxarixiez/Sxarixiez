@@ -195,13 +195,10 @@ Fandoms; undertale/deltarune, Forsaken, Regretevator, Phighthing, Friday Night F
 <img width="1533" height="576" alt="Ekran görüntüsü 2026-07-19 080142" src="https://github.com/user-attachments/assets/6d970ba7-b5ff-4326-9d62-1cac9b284aed" /> <img width="312" height="198" alt="Ekran görüntüsü 2026-07-17 193759" src="https://github.com/user-attachments/assets/b85f99f1-79bf-47a4-b190-0bf59caefd9f" />
 <img width="232" height="277" alt="Ekran görüntüsü 2026-07-16 195839" src="https://github.com/user-attachments/assets/5f288288-7f26-46ae-af16-5ea3bd26e417" />
 <img width="481" height="221" alt="Ekran görüntüsü 2026-07-13 182535" src="https://github.com/user-attachments/assets/c8e7c46c-5ca6-4e6e-8cd7-44f6522a7726" /> <img width="671" height="675" alt="Ekran görüntüsü 2026-07-11 125659" src="https://github.com/user-attachments/assets/d62b5f0c-395f-47d4-aed5-fbb0a6ad487e" />
-<img width="676" height="677" alt="Ekran görüntüsü 2026-07-11 125636" src="https://github.com/user-attachments/assets/e2b92804-db57-4198-bcf3-a903f66dae9f" />
-<img width="677" height="672" alt="Ekran görüntüsü 2026-07-11 125620" src="https://github.com/user-attachments/assets/3916fca6-5a49-409c-9b23-40fd9a65a2c6" />
-<img width="542" height="232" alt="Ekran görüntüsü 2026-07-11 100422" src="https://github.com/user-attachments/assets/1ff554cb-532f-4b33-9767-5229de6d4e84" />
+
 <img width="412" height="222" alt="Ekran görüntüsü 2026-07-11 095111" src="https://github.com/user-attachments/assets/14156d33-01f9-4678-a884-3d2904029d5a" />
 <img width="622" height="163" alt="Ekran görüntüsü 2026-07-10 160737" src="https://github.com/user-attachments/assets/5d303d26-4f1d-4f70-bfdf-cfb83c44452e" />
-<img width="856" height="846" alt="Ekran görüntüsü 2026-01-19 162725" src="https://github.com/user-attachments/assets/3e640215-04e6-4269-ac2b-b20ee90a297a" />
-<img width="677" height="672" alt="Ekran görüntüsü 2026-07-11 125711" src="https://github.com/user-attachments/assets/b6b76d30-f735-4746-88b5-bcfc1316a4af" />
+
 
 <!--
 **Sxarixiez/Sxarixiez** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
