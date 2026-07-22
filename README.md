@@ -192,7 +192,12 @@ Fandoms; undertale/deltarune, Forsaken, Regretevator, Phighthing, Friday Night F
 <img width="1499" height="360" alt="image" src="https://github.com/user-attachments/assets/56bfbf1e-12c7-4ecf-9148-9ecb1ddfb635" />
 
 <img width="317" height="316" alt="Ekran görüntüsü 2026-07-22 120621" src="https://github.com/user-attachments/assets/05432eb4-d012-4ec8-85d0-60d2e93fd4db" />
-<img width="1533" height="576" alt="Ekran görüntüsü 2026-07-19 080142" src="https://github.com/user-attachments/assets/6d970ba7-b5ff-4326-9d62-1cac9b284aed" />
+<img width="1533" height="576" alt="Ekran görüntüsü 2026-07-19 080142" src="https://github.com/user-attachments/assets/6d970ba7-b5ff-4326-9d62-1cac9b284aed" /> <img width="312" height="198" alt="Ekran görüntüsü 2026-07-17 193759" src="https://github.com/user-attachments/assets/b85f99f1-79bf-47a4-b190-0bf59caefd9f" />
+<img width="232" height="277" alt="Ekran görüntüsü 2026-07-16 195839" src="https://github.com/user-attachments/assets/5f288288-7f26-46ae-af16-5ea3bd26e417" />
+<img width="507" height="198" alt="Ekran görüntüsü 2026-07-16 193708" src="https://github.com/user-attachments/assets/fedf759c-70de-48c3-90d8-9ce890b55728" />
+<img width="288" height="180" alt="Ekran görüntüsü 2026-07-16 170734" src="https://github.com/user-attachments/assets/7cc5f806-4a61-45b3-9328-7b7c7c3a6ddb" />
+<img width="448" height="378" alt="Ekran görüntüsü 2026-07-14 163828" src="https://github.com/user-attachments/assets/3c54f3f9-65bc-4171-a743-7e478a2d282a" />
+<img width="481" height="221" alt="Ekran görüntüsü 2026-07-13 182535" src="https://github.com/user-attachments/assets/c8e7c46c-5ca6-4e6e-8cd7-44f6522a7726" />
 <!--
 **Sxarixiez/Sxarixiez** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
