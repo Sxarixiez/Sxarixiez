@@ -190,6 +190,7 @@ Fandoms; undertale/deltarune, Forsaken, Regretevator, Phighthing, Friday Night F
 <img width="480" height="20" alt="divider (1)" src="https://github.com/user-attachments/assets/15440338-8a4d-45ca-8a7e-5a09a22bc1d5" />
 <img width="2048" height="200" alt="tumblr_833c5c0557f22fe913ebba3cbbee74f3_64a541b2_2048" src="https://github.com/user-attachments/assets/88459a3b-4d8a-4183-8940-90938702b391" />
 <img width="1499" height="360" alt="image" src="https://github.com/user-attachments/assets/56bfbf1e-12c7-4ecf-9148-9ecb1ddfb635" />
+![Static Badge](https://img.shields.io/badge/HERES%20SOME%20MEMORIES%20FROM%20PONY%20TOWN-yellow)
 
 <img width="317" height="316" alt="Ekran görüntüsü 2026-07-22 120621" src="https://github.com/user-attachments/assets/05432eb4-d012-4ec8-85d0-60d2e93fd4db" />
 <img width="1533" height="576" alt="Ekran görüntüsü 2026-07-19 080142" src="https://github.com/user-attachments/assets/6d970ba7-b5ff-4326-9d62-1cac9b284aed" /> <img width="312" height="198" alt="Ekran görüntüsü 2026-07-17 193759" src="https://github.com/user-attachments/assets/b85f99f1-79bf-47a4-b190-0bf59caefd9f" />
