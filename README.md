@@ -193,10 +193,12 @@ Fandoms; undertale/deltarune, Forsaken, Regretevator, Phighthing, Friday Night F
 
 ![Static Badge](https://img.shields.io/badge/HERES%20SOME%20MEMORIES%20FROM%20PONY%20TOWN-yellow)
 
-<img width="622" height="163" alt="Ekran görüntüsü 2026-07-10 160737" src="https://github.com/user-attachments/assets/f0779cd6-9a9f-4ce0-8caa-72a448db61db" />
-<img width="856" height="846" alt="Ekran görüntüsü 2026-01-19 162725" src="https://github.com/user-attachments/assets/90e1fca1-bc49-492e-96fb-f0be75f08e5f" />
-<img width="890" height="823" alt="Ekran görüntüsü 2026-01-19 162716" src="https://github.com/user-attachments/assets/89aa113b-c3ed-4b22-9715-64674fef9fb4" />
-<img width="412" height="222" alt="Ekran görüntüsü 2026-07-11 095111" src="https://github.com/user-attachments/assets/33b1bc75-031c-4e94-98de-1ede40873c58" />
+<img width="530" height="806" alt="Ekran görüntüsü 2026-01-11 113154" src="https://github.com/user-attachments/assets/e6352cf6-1927-404f-872a-8f7a32333f22" />
+<img width="524" height="815" alt="Ekran görüntüsü 2026-01-11 113140" src="https://github.com/user-attachments/assets/0b1b1d05-8df4-42f2-b29b-8d9b245d18d9" />
+<img width="524" height="812" alt="Ekran görüntüsü 2026-01-11 113122" src="https://github.com/user-attachments/assets/9d157eca-0d0b-423c-8dc2-d443b4c9da9c" />
+<img width="525" height="811" alt="Ekran görüntüsü 2026-01-11 113105" src="https://github.com/user-attachments/assets/3e93de5f-9d27-40b5-b3a8-1fa8bb6e1a3c" />
+<img width="524" height="818" alt="Ekran görüntüsü 2026-01-11 113206" src="https://github.com/user-attachments/assets/779054a3-2bcd-4961-8c6b-736be81be362" />
+
 
 
 <img width="317" height="316" alt="Ekran görüntüsü 2026-07-22 120621" src="https://github.com/user-attachments/assets/05432eb4-d012-4ec8-85d0-60d2e93fd4db" />
