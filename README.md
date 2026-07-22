@@ -1,7 +1,8 @@
 <img width="2048" height="805" alt="tumblr_32627a53c24e51b93bb695ca2be6c3d2_53734cd1_2048" src="https://github.com/user-attachments/assets/86abe660-a2a5-4916-bfe3-0495d61c1171" /> 
-<img width="1000" height="1000" alt="tumblr_12d348893b52f6f099257e734318a999_cd5e9df7_1280" src="https://github.com/user-attachments/assets/f2ba61af-2deb-4d43-bd12-23ce0c56b3b9" />
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=cartoony&weight=100&size=39&pause=1000&color=F7B212&background=00FF2200&width=435&lines=SPOKE+IS+HERE!!1)](https://git.io/typing-svg)
+
+<img width="1000" height="1000" alt="tumblr_12d348893b52f6f099257e734318a999_cd5e9df7_1280" src="https://github.com/user-attachments/assets/f2ba61af-2deb-4d43-bd12-23ce0c56b3b9" />
 
 
 <img width="600" height="80" alt="tumblr_e3915d8ea18805a4fb68827976cf73ac_913032ff_640" src="https://github.com/user-attachments/assets/e8fdf64f-8c1d-49c2-9f4e-a74caaba0876" />
