@@ -215,11 +215,9 @@ Fandoms; undertale/deltarune, Forsaken, Regretevator, Phighthing, Friday Night F
 
 
 
-<img width="317" height="316" alt="Ekran görüntüsü 2026-07-22 120621" src="https://github.com/user-attachments/assets/05432eb4-d012-4ec8-85d0-60d2e93fd4db" />
-<img width="1533" height="576" alt="Ekran görüntüsü 2026-07-19 080142" src="https://github.com/user-attachments/assets/6d970ba7-b5ff-4326-9d62-1cac9b284aed" /> <img width="312" height="198" alt="Ekran görüntüsü 2026-07-17 193759" src="https://github.com/user-attachments/assets/b85f99f1-79bf-47a4-b190-0bf59caefd9f" />
-<img width="232" height="277" alt="Ekran görüntüsü 2026-07-16 195839" src="https://github.com/user-attachments/assets/5f288288-7f26-46ae-af16-5ea3bd26e417" />
+<img width="317" height="316" alt="Ekran görüntüsü 2026-07-22 120621" src="https://github.com/user-attachments/assets/05432eb4-d012-4ec8-85d0-60d2e93fd4db" /><img width="232" height="277" alt="Ekran görüntüsü 2026-07-16 195839" src="https://github.com/user-attachments/assets/5f288288-7f26-46ae-af16-5ea3bd26e417" />
 <img width="481" height="221" alt="Ekran görüntüsü 2026-07-13 182535" src="https://github.com/user-attachments/assets/c8e7c46c-5ca6-4e6e-8cd7-44f6522a7726" />
-
+<img width="1533" height="576" alt="Ekran görüntüsü 2026-07-19 080142" src="https://github.com/user-attachments/assets/6d970ba7-b5ff-4326-9d62-1cac9b284aed" /> <img width="312" height="198" alt="Ekran görüntüsü 2026-07-17 193759" src="https://github.com/user-attachments/assets/b85f99f1-79bf-47a4-b190-0bf59caefd9f" />
 <img width="412" height="222" alt="Ekran görüntüsü 2026-07-11 095111" src="https://github.com/user-attachments/assets/14156d33-01f9-4678-a884-3d2904029d5a" />
 <img width="622" height="163" alt="Ekran görüntüsü 2026-07-10 160737" src="https://github.com/user-attachments/assets/5d303d26-4f1d-4f70-bfdf-cfb83c44452e" />
 
