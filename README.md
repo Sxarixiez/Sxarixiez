@@ -3,7 +3,7 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=cartoony&weight=100&size=39&pause=1000&color=F7B212&background=00FF2200&width=435&lines=SPOKE+IS+HERE!!1)](https://git.io/typing-svg)
 <img width="1000" height="1000" alt="tumblr_12d348893b52f6f099257e734318a999_cd5e9df7_1280" src="https://github.com/user-attachments/assets/f2ba61af-2deb-4d43-bd12-23ce0c56b3b9" />
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=cartoony&weight=100&size=39&pause=1000&color=F7B212&background=00FF2200&width=435&lines=I'm+a+crazy+ass+teenager;get+out+of+my+page+)](https://git.io/typing-svg) 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=cartoony&weight=100&size=33&pause=1000&color=F7B212&background=00FF2200&width=435&lines=I'm+a+crazy+ass+teenager;get+out+of+my+page+)](https://git.io/typing-svg)
 
 <img width="600" height="80" alt="tumblr_e3915d8ea18805a4fb68827976cf73ac_913032ff_640" src="https://github.com/user-attachments/assets/e8fdf64f-8c1d-49c2-9f4e-a74caaba0876" />
 <img width="600" height="80" alt="tumblr_e7d69b4774d190f3f19cfbbf43b8ab68_1aca2cb8_640" src="https://github.com/user-attachments/assets/7b06e2ac-246a-4a71-8f82-a53946328f5c" />  
