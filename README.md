@@ -1,3 +1,10 @@
+<img width="312" height="198" alt="Ekran görüntüsü 2026-07-17 193759" src="https://github.com/user-attachments/assets/b85f99f1-79bf-47a4-b190-0bf59caefd9f" />
+<img width="232" height="277" alt="Ekran görüntüsü 2026-07-16 195839" src="https://github.com/user-attachments/assets/5f288288-7f26-46ae-af16-5ea3bd26e417" />
+<img width="507" height="198" alt="Ekran görüntüsü 2026-07-16 193708" src="https://github.com/user-attachments/assets/fedf759c-70de-48c3-90d8-9ce890b55728" />
+<img width="288" height="180" alt="Ekran görüntüsü 2026-07-16 170734" src="https://github.com/user-attachments/assets/7cc5f806-4a61-45b3-9328-7b7c7c3a6ddb" />
+<img width="448" height="378" alt="Ekran görüntüsü 2026-07-14 163828" src="https://github.com/user-attachments/assets/3c54f3f9-65bc-4171-a743-7e478a2d282a" />
+<img width="481" height="221" alt="Ekran görüntüsü 2026-07-13 182535" src="https://github.com/user-attachments/assets/c8e7c46c-5ca6-4e6e-8cd7-44f6522a7726" />
+<img width="303" height="281" alt="Ekran görüntüsü 2026-07-19 034700" src="https://github.com/user-attachments/assets/cccedc47-8e3d-4c4a-ab34-ed1808eac2e2" />
 <img width="735" height="295" alt="tumblr_13235e3009ee58d4355c9c9f3dc95b7b_f400a6a3_1280" src="https://github.com/user-attachments/assets/809d855c-a86e-43f3-9faa-d8984d824504" /><img width="99" height="100" alt="killer-sans-lovkills" src="https://github.com/user-attachments/assets/2aebc84f-51e2-477f-90f3-ac0e7a678b87" /> ![Static Badge](https://img.shields.io/badge/HELLO%2C%20WELCOME%20TO%20MY%20GITHUB%20PAGE%20THIS%20IS%20ONLY%20FOR%20THE%20PONY%20TOWN%20GAME%20SAYING%20IT%20AGAIN%20I%20DONT%20DO%20JOBS%20IM%20A%20MINOR.-yellow)
 
 ![Static Badge](https://img.shields.io/badge/sign%20my%20atabook%20please!!1-yellow)
