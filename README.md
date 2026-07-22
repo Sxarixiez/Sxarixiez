@@ -1,7 +1,7 @@
 <img width="2048" height="805" alt="tumblr_32627a53c24e51b93bb695ca2be6c3d2_53734cd1_2048" src="https://github.com/user-attachments/assets/86abe660-a2a5-4916-bfe3-0495d61c1171" /> 
 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=100&size=33&pause=1000&color=F78300&width=435&lines=SPOKE+IS+HERE!!1)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F75301&center=true&vCenter=true&width=435&lines=SPOKE+IS+HERE!!1)](https://git.io/typing-svg)
 <img width="1000" height="1000" alt="tumblr_12d348893b52f6f099257e734318a999_cd5e9df7_1280" src="https://github.com/user-attachments/assets/f2ba61af-2deb-4d43-bd12-23ce0c56b3b9" />
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F75301&center=true&vCenter=true&width=435&lines=I'M+A+CRAZY+ASS+TEENAGER+;GET+OUT+OF+MY+PAGE+%2Fj)](https://git.io/typing-svg)
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F70000&center=true&width=435&lines=partykiller+%26+anomaly+duo+twin%3A;%40spokishere)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=8708F7&center=true&vCenter=true&width=435&lines=TAX+duo+twin%3A;%40redsundew)](https://git.io/typing-svg)
