@@ -9,8 +9,8 @@
 <img width="600" height="80" alt="tumblr_e7d69b4774d190f3f19cfbbf43b8ab68_1aca2cb8_640" src="https://github.com/user-attachments/assets/7b06e2ac-246a-4a71-8f82-a53946328f5c" />  
 
 <img width="99" height="100" alt="spoke-spokeishere" src="https://github.com/user-attachments/assets/5b4236a1-a4cb-4575-b2e1-2a0c2be7f843" />![Static Badge](https://img.shields.io/badge/I'M%20A%20HEAVY%20SPOKE%20FICTIONKIN%20NOW!!-red)
-
-![Static Badge](https://img.shields.io/badge/Spoke%20Fictive-yellow)![Static Badge](https://img.shields.io/badge/Spoke%20MY%20BELOVED-green)![Static Badge](https://img.shields.io/badge/Spoke%20MY%20SILLY%20FAVORITE%20GOOBER-cyan)![Static Badge](https://img.shields.io/badge/Spoke..-blue)![Static Badge](https://img.shields.io/badge/THE%20SILLY%20ASS%20RAINBOW%20GOOBER%20STRIKES%20DOWN-purple)
+![Static Badge](https://img.shields.io/badge/Spoke%20Fictionkin-yellow)
+![Static Badge](https://img.shields.io/badge/Spoke%20MY%20BELOVED-green)![Static Badge](https://img.shields.io/badge/Spoke%20MY%20SILLY%20FAVORITE%20GOOBER-cyan)![Static Badge](https://img.shields.io/badge/Spoke..-blue)![Static Badge](https://img.shields.io/badge/THE%20SILLY%20ASS%20RAINBOW%20GOOBER%20STRIKES%20DOWN-purple)
 
 
 
