@@ -6,7 +6,7 @@
 
 > *SPOKE FICTIONKIN*‼️‼️  <img width="20" height="20" alt="886c2fe0" src="https://github.com/user-attachments/assets/7fbe3fad-d861-435f-bb49-40582124afb6" />
 
-> - Multifandomer / editor / artist
+> - Multifandomer / editor / artist <img width="20" height="20" alt="f30e1dc8" src="https://github.com/user-attachments/assets/6a690a6c-b294-4c35-8e1e-417d5fc656cd" />
 > - I'm weird and thats okay
 > - IM SPOOKEE UNSTABLEEE
 
