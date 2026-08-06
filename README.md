@@ -8,9 +8,7 @@
 > - 🦈 Multifandomer / editor / artist <img width="20" height="20" alt="f30e1dc8" src="https://github.com/user-attachments/assets/6a690a6c-b294-4c35-8e1e-417d5fc656cd" />
 > - 👽 I'm weird and thats okay <img width="20" height="20" alt="tumblr_8f8e18e4bfa218b754de25619f35dfb2_2e46b69b_75" src="https://github.com/user-attachments/assets/8eb1914b-1bea-46d7-a389-9114bcb02646" />
 > - (●'◡'●) IM SPOOKEE UNSTABLEEE <img width="32" height="34" alt="1d3d0c12" src="https://github.com/user-attachments/assets/29fe1208-f453-4b86-9288-01228c61b995" /><img width="20" height="20" alt="17fc9392" src="https://github.com/user-attachments/assets/8cbfdd10-ac82-440f-a52b-859afcfe2cb9" /><img width="20" height="20" alt="c06f33a3" src="https://github.com/user-attachments/assets/c683339f-4adf-4044-9bc8-cee5d130dad9" /><img width="20" height="20" alt="f9d79ff2" src="https://github.com/user-attachments/assets/c5d61602-1ef8-4844-bf00-53bf4ca247bb" />
-<img width="20" height="20" alt="93047aba" src="https://github.com/user-attachments/assets/c808aa10-883b-4221-bf8a-58356e61aa4c" />
-<img width="20" height="20" alt="c435c95b" src="https://github.com/user-attachments/assets/6e50ad48-79a6-4461-9d67-71edbf9b0276" />
-<img width="20" height="20" alt="42be643a" src="https://github.com/user-attachments/assets/02d6f8c1-8cc6-4902-bf57-d73f81fba64c" />
+
 
 <img width="2048" height="2048" alt="tumblr_a8d63d71546d79ff693d4ec557b1aacc_dc7bbac3_2048" src="https://github.com/user-attachments/assets/71cc6875-2fef-49e8-8730-9fa1fbe494cd" />
 
@@ -146,7 +144,9 @@ https://scarriotzz1x4.straw.page
 
 <img width="480" height="20" alt="divider (1)" src="https://github.com/user-attachments/assets/15440338-8a4d-45ca-8a7e-5a09a22bc1d5" />
 
-ᴛʜɪꜱ ᴀᴄᴄᴏᴜɴᴛ ɪꜱ ᴜꜱᴇᴅ ꜰᴏʀ ᴘᴛ!! [ᴘᴏɴʏ ᴛᴏᴡɴ] (ʀᴇᴀᴅ ʙᴇꜰᴏʀᴇ ɪɴᴛᴇʀᴀᴄᴛɪɴɢ)
+ᴛʜɪꜱ ᴀᴄᴄᴏᴜɴᴛ ɪꜱ ᴜꜱᴇᴅ ꜰᴏʀ ᴘᴛ!! [ᴘᴏɴʏ ᴛᴏᴡɴ] (ʀᴇᴀᴅ ʙᴇꜰᴏʀᴇ ɪɴᴛᴇʀᴀᴄᴛɪɴɢ)<img width="20" height="20" alt="93047aba" src="https://github.com/user-attachments/assets/c808aa10-883b-4221-bf8a-58356e61aa4c" />
+<img width="20" height="20" alt="c435c95b" src="https://github.com/user-attachments/assets/6e50ad48-79a6-4461-9d67-71edbf9b0276" />
+<img width="20" height="20" alt="42be643a" src="https://github.com/user-attachments/assets/02d6f8c1-8cc6-4902-bf57-d73f81fba64c" />
 
 ᴅᴜᴍʙ 7ᴛᴇᴇɴ -ᴍɪɴᴏʀ- ʟɪᴛᴛʟᴇ ꜱɪʟʟʏ ᴀꜱꜰ ᴀᴜᴅʜᴅ ʙᴏʏɢɪʀʟᴛʜɪɴɢ [ᴀɴʏ ᴘʀᴏɴᴏᴜɴꜱ] #𝙏𝙃𝙀𝘿𝘼𝙍𝙆𝙇𝙊𝙍𝘿𝙎𝙄𝙈𝙋 #ˢᴴᴬᴿᴷᶠᴵᶜᵀᴵⱽᴱ 
 <img width="798" height="100" alt="image" src="https://github.com/user-attachments/assets/ea50ff84-3b49-44bc-a055-47d8b8d6aa3c" />
