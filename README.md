@@ -1,5 +1,11 @@
 <img width="1280" height="511" alt="tumblr_d5cb795a50f03968757ff8024cbd69bb_891909f1_1280" src="https://github.com/user-attachments/assets/6997be1b-fcf3-4784-b059-e17f661c6a46" /> 
 
+# install.packages("devtools")
+devtools::install_github("ThinkR-open/littleboxes")
+
+# If you just want boxes without any tricks using Rstudio outline 
+devtools::install_github("ThinkRstat/littleboxes",ref="simpleboxe")
+
 <img width="2048" height="2048" alt="tumblr_a8d63d71546d79ff693d4ec557b1aacc_dc7bbac3_2048" src="https://github.com/user-attachments/assets/71cc6875-2fef-49e8-8730-9fa1fbe494cd" />
 
 <img width="2047" height="817" alt="tumblr_002cc620f75692e891c9ab20b8fa871d_bee11098_2048" src="https://github.com/user-attachments/assets/8abcf137-368f-499e-bd2b-b957a54fd1d9" /> 
