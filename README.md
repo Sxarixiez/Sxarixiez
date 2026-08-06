@@ -4,7 +4,7 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=500&pause=100&color=03F75C&center=true&vCenter=true&width=435&lines=Undertale%2FDeltarune;Unstable+SMP;Lifesteal+SMP;Kaboodle+SMP;Friday+Night+Funkin;Five+Nights+at+Freddy's;Psychopomp+GOLD;ULTRAKILL;ENA+DREAM+BBQ;Sally+Face;Undertale+Yellow;Underverse;SANS+AUS;Katana+ZERO;Hotline+Miami;Pizza+Tower;Doki+Doki+Literature+Club;Helltaker;Awaria;Cuphead;Bendy;Bomb+Rush+Cyberfunk;INDIE+CROSS;Murder+Drones;Gameoverse;ENA+%5Bseries%5D;PlanetRonika;INVADER+ZIM;HOMESTUCK;ANTON+BLAST;Buckshot+Roulette+;Zenless+Zone+Zero;GODZILLA+or+MONSTERVERSE+IN+GENERAL;TRANSFORMERS;Postal;SOLARBALLS;COUNTRYBALLS;SMG4;DOOM;HALO;ONE+WHEAT+MARK;Vocaloid;Dead+Cells;Pokemon;EDDSWORLD;Pressure;Phighting;DIE+OF+DEATH;FORSAKEN;TRUD;Digital+Circus+%5Bidk..%5D;Battle+for+Dream+Island;The+Power+of+Two;Spiderverse;Chainsaw+Man;Hollow+Knight+;Hollow+Knight%3A+SILKSONG;Animation+VS+Minecraft+;Animation+VS+Animator;Sonic+The+Hedgehog;REGRETEVATOR;AND+MORE!!1!1)](https://git.io/typing-svg)  
 
-> SPOKE FICTIONKIN‼️‼️  <img width="20" height="20" alt="886c2fe0" src="https://github.com/user-attachments/assets/7fbe3fad-d861-435f-bb49-40582124afb6" />
+> *SPOKE FICTIONKIN*‼️‼️  <img width="20" height="20" alt="886c2fe0" src="https://github.com/user-attachments/assets/7fbe3fad-d861-435f-bb49-40582124afb6" />
 
 > - Multifandomer / editor / artist
 > - I'm weird and thats okay
