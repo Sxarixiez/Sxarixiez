@@ -4,7 +4,7 @@
 devtools::install_github("ThinkR-open/littleboxes")
 
 # If you just want boxes without any tricks using Rstudio outline 
-devtools::install_github("ThinkRstat/littleboxes",ref="simpleboxe")
+devtools::install_github("ThinkRstat/littleboxes",ref="simpleboxe") 
 
 <img width="2048" height="2048" alt="tumblr_a8d63d71546d79ff693d4ec557b1aacc_dc7bbac3_2048" src="https://github.com/user-attachments/assets/71cc6875-2fef-49e8-8730-9fa1fbe494cd" />
 
