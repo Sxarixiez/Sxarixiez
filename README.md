@@ -4,7 +4,7 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=500&pause=100&color=03F75C&center=true&vCenter=true&width=435&lines=Undertale%2FDeltarune;Unstable+SMP;Lifesteal+SMP;Kaboodle+SMP;Friday+Night+Funkin;Five+Nights+at+Freddy's;Psychopomp+GOLD;ULTRAKILL;ENA+DREAM+BBQ;Sally+Face;Undertale+Yellow;Underverse;SANS+AUS;Katana+ZERO;Hotline+Miami;Pizza+Tower;Doki+Doki+Literature+Club;Helltaker;Awaria;Cuphead;Bendy;Bomb+Rush+Cyberfunk;INDIE+CROSS;Murder+Drones;Gameoverse;ENA+%5Bseries%5D;PlanetRonika;INVADER+ZIM;HOMESTUCK;ANTON+BLAST;Buckshot+Roulette+;Zenless+Zone+Zero;GODZILLA+or+MONSTERVERSE+IN+GENERAL;TRANSFORMERS;Postal;SOLARBALLS;COUNTRYBALLS;SMG4;DOOM;HALO;ONE+WHEAT+MARK;Vocaloid;Dead+Cells;Pokemon;EDDSWORLD;Pressure;Phighting;DIE+OF+DEATH;FORSAKEN;TRUD;Digital+Circus+%5Bidk..%5D;Battle+for+Dream+Island;The+Power+of+Two;Spiderverse;Chainsaw+Man;Hollow+Knight+;Hollow+Knight%3A+SILKSONG;Animation+VS+Minecraft+;Animation+VS+Animator;Sonic+The+Hedgehog;REGRETEVATOR;AND+MORE!!1!1)](https://git.io/typing-svg)  
 
-[ ]
+[HI HI HI SPOKE FICTKIN ]
 <img width="2048" height="2048" alt="tumblr_a8d63d71546d79ff693d4ec557b1aacc_dc7bbac3_2048" src="https://github.com/user-attachments/assets/71cc6875-2fef-49e8-8730-9fa1fbe494cd" />
 
 <img width="2047" height="817" alt="tumblr_002cc620f75692e891c9ab20b8fa871d_bee11098_2048" src="https://github.com/user-attachments/assets/8abcf137-368f-499e-bd2b-b957a54fd1d9" /> 
