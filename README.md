@@ -6,7 +6,7 @@
 
 <img width="292" height="72" alt="tumblr_896540b858efc0db38dabe14d235b3b6_67abe804_400" src="https://github.com/user-attachments/assets/e6fa95b8-7361-4c19-a2b8-53849b64ad5e" /> 
 <img width="730" height="99" alt="tumblr_96673478de3818d77a91d2dce0a4a911_78c82853_1280" src="https://github.com/user-attachments/assets/5571b606-1f55-45ca-b2c9-ceaec7cdae25" /><img width="730" height="99" alt="tumblr_7d5dd4a05b3f1d78d922db5ccdc9cdc3_6b42db6f_1280" src="https://github.com/user-attachments/assets/0745fa53-6b59-48e2-bed1-40e6cb7781e1" />
-<img width="114" height="18" alt="tumblr_b7b040961f29bcdd5aa0b38d336a89be_e20d4ea2_250" src="https://github.com/user-attachments/assets/c07dc727-1813-438d-be85-d36c3e261085" /> 
+<img width="114" height="18" alt="tumblr_b7b040961f29bcdd5aa0b38d336a89be_e20d4ea2_250" src="https://github.com/user-attachments/assets/c07dc727-1813-438d-be85-d36c3e261085" /><img width="114" height="18" alt="tumblr_5819df40f986d1ca2d13c4dd748565d7_5af18e7d_250" src="https://github.com/user-attachments/assets/b9c43232-f880-493f-a7c8-bb4000fd5099" /> 
 
 > - 🦀 *SPOKE FICTIONKIN*‼️‼️  <img width="20" height="20" alt="886c2fe0" src="https://github.com/user-attachments/assets/7fbe3fad-d861-435f-bb49-40582124afb6" />
 > - 🦈 Multifandomer / editor / artist <img width="20" height="20" alt="f30e1dc8" src="https://github.com/user-attachments/assets/6a690a6c-b294-4c35-8e1e-417d5fc656cd" />
