@@ -250,6 +250,7 @@ Fandoms; undertale/deltarune, Forsaken, Regretevator, Phighthing, Friday Night F
 <img width="1533" height="576" alt="Ekran görüntüsü 2026-07-19 080142" src="https://github.com/user-attachments/assets/6d970ba7-b5ff-4326-9d62-1cac9b284aed" /> 
 <img width="622" height="163" alt="Ekran görüntüsü 2026-07-10 160737" src="https://github.com/user-attachments/assets/5d303d26-4f1d-4f70-bfdf-cfb83c44452e" />
 
+<img width="458" height="498" alt="spokeishere-spoke-is-here" src="https://github.com/user-attachments/assets/3c8db863-a58a-45e7-a9ee-1c56d3c32039" />
 
 <!--
 **Sxarixiez/Sxarixiez** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
