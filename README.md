@@ -1,4 +1,3 @@
-<img width="1080" height="1180" alt="756846460_1066668609205289_5162838238393450486_n" src="https://github.com/user-attachments/assets/0a345480-669c-4d12-a77c-40114c55a157" />
 <img width="1280" height="511" alt="tumblr_d5cb795a50f03968757ff8024cbd69bb_891909f1_1280" src="https://github.com/user-attachments/assets/6997be1b-fcf3-4784-b059-e17f661c6a46" /> 
 
 # THE BIGGEST MULTIFANDOMER YOU've EVER SEEN hi IM SPOKE IRL ‼️‼️‼️🍕🧪
@@ -240,6 +239,10 @@ Fandoms; undertale/deltarune, Forsaken, Regretevator, Phighthing, Friday Night F
 <img width="480" height="20" alt="divider (1)" src="https://github.com/user-attachments/assets/15440338-8a4d-45ca-8a7e-5a09a22bc1d5" />
 <img width="2048" height="200" alt="tumblr_833c5c0557f22fe913ebba3cbbee74f3_64a541b2_2048" src="https://github.com/user-attachments/assets/88459a3b-4d8a-4183-8940-90938702b391" />
 <img width="1499" height="360" alt="image" src="https://github.com/user-attachments/assets/56bfbf1e-12c7-4ecf-9148-9ecb1ddfb635" />
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=4606F7&center=true&vCenter=true&width=435&lines=ALSO+THANKS+%40yakultsson+FOR+THIS;ITS+MY+OC!!1)](https://git.io/typing-svg)
+
+<img width="1080" height="1180" alt="756846460_1066668609205289_5162838238393450486_n" src="https://github.com/user-attachments/assets/0a345480-669c-4d12-a77c-40114c55a157" /> 
 
 ![Static Badge](https://img.shields.io/badge/HERES%20SOME%20MEMORIES%20FROM%20PONY%20TOWN-yellow)
 
