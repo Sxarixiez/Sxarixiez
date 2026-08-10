@@ -1,4 +1,3 @@
-<img width="2048" height="2048" alt="tumblr_c6edbd5353abd3768e4f9aef8ca25e91_1b69c3d2_2048" src="https://github.com/user-attachments/assets/2abc37b2-b70e-4c3c-baf4-b304904e6f5c" />
 <img width="1280" height="511" alt="tumblr_d5cb795a50f03968757ff8024cbd69bb_891909f1_1280" src="https://github.com/user-attachments/assets/6997be1b-fcf3-4784-b059-e17f661c6a46" /> 
 
 # THE BIGGEST MULTIFANDOMER YOU've EVER SEEN hi IM SPOKE IRL ‼️‼️‼️🍕🧪
