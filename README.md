@@ -1,5 +1,4 @@
 <img width="2048" height="2048" alt="tumblr_c6edbd5353abd3768e4f9aef8ca25e91_1b69c3d2_2048" src="https://github.com/user-attachments/assets/2abc37b2-b70e-4c3c-baf4-b304904e6f5c" />
-<img width="396" height="224" alt="tumblr_1b6b648d5c5f113fdc8b0bde4f400268_f3fe5e93_400" src="https://github.com/user-attachments/assets/a6026a86-f1ab-4024-ac03-edb83cc26eb4" />
 <img width="1280" height="511" alt="tumblr_d5cb795a50f03968757ff8024cbd69bb_891909f1_1280" src="https://github.com/user-attachments/assets/6997be1b-fcf3-4784-b059-e17f661c6a46" /> 
 
 # THE BIGGEST MULTIFANDOMER YOU've EVER SEEN hi IM SPOKE IRL ‼️‼️‼️🍕🧪
@@ -19,6 +18,7 @@
 > - 👽 I'm weird and thats okay <img width="20" height="20" alt="tumblr_8f8e18e4bfa218b754de25619f35dfb2_2e46b69b_75" src="https://github.com/user-attachments/assets/8eb1914b-1bea-46d7-a389-9114bcb02646" />
 > - (●'◡'●) IM SPOOKEE UNSTABLEEE <img width="32" height="34" alt="1d3d0c12" src="https://github.com/user-attachments/assets/29fe1208-f453-4b86-9288-01228c61b995" /><img width="20" height="20" alt="17fc9392" src="https://github.com/user-attachments/assets/8cbfdd10-ac82-440f-a52b-859afcfe2cb9" /><img width="20" height="20" alt="c06f33a3" src="https://github.com/user-attachments/assets/c683339f-4adf-4044-9bc8-cee5d130dad9" /><img width="20" height="20" alt="f9d79ff2" src="https://github.com/user-attachments/assets/c5d61602-1ef8-4844-bf00-53bf4ca247bb" />
 
+<img width="396" height="224" alt="tumblr_1b6b648d5c5f113fdc8b0bde4f400268_f3fe5e93_400" src="https://github.com/user-attachments/assets/a6026a86-f1ab-4024-ac03-edb83cc26eb4" />
 
 <img width="2048" height="2048" alt="tumblr_a8d63d71546d79ff693d4ec557b1aacc_dc7bbac3_2048" src="https://github.com/user-attachments/assets/71cc6875-2fef-49e8-8730-9fa1fbe494cd" />
 
