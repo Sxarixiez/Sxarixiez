@@ -54,7 +54,7 @@
 ![Static Badge](https://img.shields.io/badge/riot!!-green)
 
 <img width="99" height="100" alt="killer-sans-lovkills" src="https://github.com/user-attachments/assets/2aebc84f-51e2-477f-90f3-ac0e7a678b87" /> 
-![Static Badge](https://img.shields.io/badge/HELLO%2C%20WELCOME%20TO%20MY%20GITHUB%20PAGE%20THIS%20IS%20ONLY%20FOR%20THE%20PONY%20TOWN%20GAME%20SAYING%20IT%20AGAIN%20I%20DONT%20DO%20JOBS%20IM%20A%20MINOR.-yellow)
+![Static Badge](https://img.shields.io/badge/HELLO%2C%20WELCOME%20TO%20MY%20GITHUB%20PAGE%20THIS%20IS%20ONLY%20FOR%20THE%20PONY%20TOWN%20GAME%20SAYING%20IT%20AGAIN%20I%20DONT%20DO%20JOBS%20IM%20A%20MINOR.-yellow) 
 
 
 ![Static Badge](https://img.shields.io/badge/sign%20my%20atabook%20please!!1-yellow)
