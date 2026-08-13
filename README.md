@@ -1,8 +1,8 @@
 <img width="1280" height="511" alt="tumblr_d5cb795a50f03968757ff8024cbd69bb_891909f1_1280" src="https://github.com/user-attachments/assets/6997be1b-fcf3-4784-b059-e17f661c6a46" /> 
 
 # THE BIGGEST MULTIFANDOMER YOU've EVER SEEN hi IM SPOKE IRL ‼️‼️‼️🍕🧪
-<img width="268" height="268" alt="pony-town-_💉_ ‼⁉ - SUBSPACE!!1 🙀-dance-4-blinking-padded-toy421-4x" src="https://github.com/user-attachments/assets/aeb5c133-7edc-4e14-97e1-5f95778aab57" />
-<img width="272" height="260" alt="pony-town-_💉⚠_ ‼⁉ - _MY INVENTION!!1_-dance-4-blinking-padded-toy421-4x" src="https://github.com/user-attachments/assets/fb887448-9bd7-4c19-a2a0-21a4f7e609de" />
+<img width="212" height="228" alt="pony-town-_💉_ ‼⁉ - SUBSPACE!!1 🙀-dance-lie-blinking-padded-toy421-4x" src="https://github.com/user-attachments/assets/78afb63f-ebd8-4706-84ef-5a8db33369f9" />
+<img width="216" height="220" alt="pony-town-_💉⚠_ ‼⁉ - _MY INVENTION!!1_-dance-lie-blinking-padded-toy421-4x" src="https://github.com/user-attachments/assets/1d699609-ab97-4932-8fa8-c570a992da46" />
 <img width="236" height="240" alt="pony-town-_⭐🎭_ ‼⁉ - JESTERSPACE!!1 😺-dance-4-blinking-padded-4x" src="https://github.com/user-attachments/assets/0faeca1e-9a67-4f60-95b4-bbf0a5b7a2ba" />
 <img width="260" height="240" alt="pony-town-_🍓_ ‼⁉ - CUTIESPACE!!1 😼-dance-4-blinking-padded-toy365-4x" src="https://github.com/user-attachments/assets/efcebcfb-9000-4757-aa8b-792a2dd758e1" />
 <img width="216" height="196" alt="pony-town-# _⚠💊_ ‼ - ꜱᴀʀᴀʜ!! ザ・グラディエント-dance-lie-blinking-padded-toy269-4x" src="https://github.com/user-attachments/assets/09c031c0-90e6-4e12-a390-2a7e4c7f1a0c" />
