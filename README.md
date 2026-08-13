@@ -2,6 +2,8 @@
 
 # THE BIGGEST MULTIFANDOMER YOU've EVER SEEN hi IM SPOKE IRL ‼️‼️‼️🍕🧪
 
+![Static Badge](https://img.shields.io/badge/scar!!-red)![Static Badge](https://img.shields.io/badge/SPOKE%20%26%20SUBSPACE%20FICTIONKIN-red)
+
 <img width="292" height="72" alt="tumblr_896540b858efc0db38dabe14d235b3b6_67abe804_400" src="https://github.com/user-attachments/assets/e6fa95b8-7361-4c19-a2b8-53849b64ad5e" /> 
 <img width="730" height="99" alt="tumblr_96673478de3818d77a91d2dce0a4a911_78c82853_1280" src="https://github.com/user-attachments/assets/5571b606-1f55-45ca-b2c9-ceaec7cdae25" /><img width="730" height="99" alt="tumblr_7d5dd4a05b3f1d78d922db5ccdc9cdc3_6b42db6f_1280" src="https://github.com/user-attachments/assets/0745fa53-6b59-48e2-bed1-40e6cb7781e1" /><img width="250" height="150" alt="tumblr_1dd729e37978c80925a76c6fa47216cc_4ca82543_250" src="https://github.com/user-attachments/assets/f0858247-319f-4ff9-bba3-9606b822915d" /><img width="250" height="150" alt="tumblr_96ad31b17d393db88a0267950c1e53e9_02922b54_250" src="https://github.com/user-attachments/assets/42813faa-ba55-4b88-9b49-8502a3691419" />
 <img width="250" height="150" alt="tumblr_6cadbcb97da06dc4c4eb96a19558e706_e2359ff8_250" src="https://github.com/user-attachments/assets/4a6a5706-7f6e-4498-8db8-1ab7fa0c205c" /><img width="250" height="150" alt="annoyed-tf2" src="https://github.com/user-attachments/assets/27be4cf0-6a15-41c1-9525-e9feb9795a4a" /> 
@@ -35,8 +37,6 @@
 
 <img width="216" height="196" alt="pony-town-# _⚠💊_ ‼ - ꜱᴀʀᴀʜ!! ザ・グラディエント-dance-lie-blinking-padded-toy269-4x" src="https://github.com/user-attachments/assets/09c031c0-90e6-4e12-a390-2a7e4c7f1a0c" />
 <img width="216" height="196" alt="pony-town-# _⚠💊_ ‼ - ꜱᴀʀᴀʜ!! プッシュ式電話機-dance-lie-blinking-padded-toy269-4x" src="https://github.com/user-attachments/assets/6bb87b46-5dcf-4811-96fd-1f3aa7184176" />
-
-![Static Badge](https://img.shields.io/badge/scar!!-red)![Static Badge](https://img.shields.io/badge/SPOKE%20%26%20SUBSPACE%20FICTIONKIN-red)
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F70878&center=true&vCenter=true&width=435&lines=I'm+also+seen+w+this+three+too+)](https://git.io/typing-svg)
 
