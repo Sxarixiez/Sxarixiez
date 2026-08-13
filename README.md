@@ -10,6 +10,8 @@
 <img width="99" height="56" alt="tumblr_f2d9045612e9619d2c52b022e19ac5f3_2db6701a_100" src="https://github.com/user-attachments/assets/291165dd-9c9b-44ce-b4ad-4acc526ebcd0" />
 <img width="114" height="18" alt="tumblr_b7b040961f29bcdd5aa0b38d336a89be_e20d4ea2_250" src="https://github.com/user-attachments/assets/c07dc727-1813-438d-be85-d36c3e261085" /><img width="114" height="18" alt="tumblr_5819df40f986d1ca2d13c4dd748565d7_5af18e7d_250" src="https://github.com/user-attachments/assets/b9c43232-f880-493f-a7c8-bb4000fd5099" /> <img width="80" height="80" alt="spoke" src="https://github.com/user-attachments/assets/d90ee7b6-e84c-4b33-a1e9-3669af57a58a" />
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=500&pause=100&color=03F75C&center=true&vCenter=true&width=435&lines=Undertale%2FDeltarune;Unstable+SMP;Lifesteal+SMP;Kaboodle+SMP;Friday+Night+Funkin;Five+Nights+at+Freddy's;Psychopomp+GOLD;ULTRAKILL;ENA+DREAM+BBQ;Sally+Face;Undertale+Yellow;Underverse;SANS+AUS;Katana+ZERO;Hotline+Miami;Pizza+Tower;Doki+Doki+Literature+Club;Helltaker;Awaria;Cuphead;Bendy;Bomb+Rush+Cyberfunk;INDIE+CROSS;Murder+Drones;Gameoverse;ENA+%5Bseries%5D;PlanetRonika;INVADER+ZIM;HOMESTUCK;ANTON+BLAST;Buckshot+Roulette+;Zenless+Zone+Zero;GODZILLA+or+MONSTERVERSE+IN+GENERAL;TRANSFORMERS;Postal;SOLARBALLS;COUNTRYBALLS;SMG4;DOOM;HALO;ONE+WHEAT+MARK;Vocaloid;Dead+Cells;Pokemon;EDDSWORLD;Pressure;Phighting;DIE+OF+DEATH;FORSAKEN;TRUD;Digital+Circus+%5Bidk..%5D;Battle+for+Dream+Island;The+Power+of+Two;Spiderverse;Chainsaw+Man;Hollow+Knight+;Hollow+Knight%3A+SILKSONG;Animation+VS+Minecraft+;Animation+VS+Animator;Sonic+The+Hedgehog;REGRETEVATOR;AND+MORE!!1!1)](https://git.io/typing-svg)  
+
 > - 🦀 *SPOKE FICTIONKIN*‼️‼️  <img width="20" height="20" alt="886c2fe0" src="https://github.com/user-attachments/assets/7fbe3fad-d861-435f-bb49-40582124afb6" />
 > - 🦈 Multifandomer / editor / artist <img width="20" height="20" alt="f30e1dc8" src="https://github.com/user-attachments/assets/6a690a6c-b294-4c35-8e1e-417d5fc656cd" />
 > - 👽 I'm weird and thats okay <img width="20" height="20" alt="tumblr_8f8e18e4bfa218b754de25619f35dfb2_2e46b69b_75" src="https://github.com/user-attachments/assets/8eb1914b-1bea-46d7-a389-9114bcb02646" />
@@ -31,12 +33,6 @@
 
 <img width="216" height="196" alt="pony-town-# _⚠💊_ ‼ - ꜱᴀʀᴀʜ!! ザ・グラディエント-dance-lie-blinking-padded-toy269-4x" src="https://github.com/user-attachments/assets/09c031c0-90e6-4e12-a390-2a7e4c7f1a0c" />
 <img width="216" height="196" alt="pony-town-# _⚠💊_ ‼ - ꜱᴀʀᴀʜ!! プッシュ式電話機-dance-lie-blinking-padded-toy269-4x" src="https://github.com/user-attachments/assets/6bb87b46-5dcf-4811-96fd-1f3aa7184176" />
-
-
-
-
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=500&pause=100&color=03F75C&center=true&vCenter=true&width=435&lines=Undertale%2FDeltarune;Unstable+SMP;Lifesteal+SMP;Kaboodle+SMP;Friday+Night+Funkin;Five+Nights+at+Freddy's;Psychopomp+GOLD;ULTRAKILL;ENA+DREAM+BBQ;Sally+Face;Undertale+Yellow;Underverse;SANS+AUS;Katana+ZERO;Hotline+Miami;Pizza+Tower;Doki+Doki+Literature+Club;Helltaker;Awaria;Cuphead;Bendy;Bomb+Rush+Cyberfunk;INDIE+CROSS;Murder+Drones;Gameoverse;ENA+%5Bseries%5D;PlanetRonika;INVADER+ZIM;HOMESTUCK;ANTON+BLAST;Buckshot+Roulette+;Zenless+Zone+Zero;GODZILLA+or+MONSTERVERSE+IN+GENERAL;TRANSFORMERS;Postal;SOLARBALLS;COUNTRYBALLS;SMG4;DOOM;HALO;ONE+WHEAT+MARK;Vocaloid;Dead+Cells;Pokemon;EDDSWORLD;Pressure;Phighting;DIE+OF+DEATH;FORSAKEN;TRUD;Digital+Circus+%5Bidk..%5D;Battle+for+Dream+Island;The+Power+of+Two;Spiderverse;Chainsaw+Man;Hollow+Knight+;Hollow+Knight%3A+SILKSONG;Animation+VS+Minecraft+;Animation+VS+Animator;Sonic+The+Hedgehog;REGRETEVATOR;AND+MORE!!1!1)](https://git.io/typing-svg)  
 
 ![Static Badge](https://img.shields.io/badge/scar!!-red)![Static Badge](https://img.shields.io/badge/SPOKE%20%26%20SUBSPACE%20FICTIONKIN-red)
 
