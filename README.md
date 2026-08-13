@@ -15,6 +15,8 @@
 > - 👽 I'm weird and thats okay <img width="20" height="20" alt="tumblr_8f8e18e4bfa218b754de25619f35dfb2_2e46b69b_75" src="https://github.com/user-attachments/assets/8eb1914b-1bea-46d7-a389-9114bcb02646" />
 > - (●'◡'●) IM SPOOKEE UNSTABLEEE <img width="32" height="34" alt="1d3d0c12" src="https://github.com/user-attachments/assets/29fe1208-f453-4b86-9288-01228c61b995" /><img width="20" height="20" alt="17fc9392" src="https://github.com/user-attachments/assets/8cbfdd10-ac82-440f-a52b-859afcfe2cb9" /><img width="20" height="20" alt="c06f33a3" src="https://github.com/user-attachments/assets/c683339f-4adf-4044-9bc8-cee5d130dad9" /><img width="20" height="20" alt="f9d79ff2" src="https://github.com/user-attachments/assets/c5d61602-1ef8-4844-bf00-53bf4ca247bb" />
 
+<img width="396" height="224" alt="tumblr_1b6b648d5c5f113fdc8b0bde4f400268_f3fe5e93_400" src="https://github.com/user-attachments/assets/a6026a86-f1ab-4024-ac03-edb83cc26eb4" />
+
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=40&size=10&pause=1000&color=F70878&center=true&vCenter=true&width=435&separator=%3C&lines=subspace+original++;+D+O+++N++O+T++C+O+P+Y%3C+OR+YOUR+GETTING+SLIMED)](https://git.io/typing-svg)
 
 <img width="212" height="228" alt="pony-town-_💉_ ‼⁉ - SUBSPACE!!1 🙀-dance-lie-blinking-padded-toy421-4x" src="https://github.com/user-attachments/assets/78afb63f-ebd8-4706-84ef-5a8db33369f9" />
@@ -42,10 +44,7 @@
 
 <img width="208" height="192" alt="pony-town-_⛓_ ‼⁉ - AGOTI!!1 🖤-dance-lie-blinking-padded-4x" src="https://github.com/user-attachments/assets/0f55bc31-436b-40d0-b92e-858f7d9a7a53" /> 
 <img width="216" height="196" alt="pony-town-# _🎧_ グーバー ‼⁉ - BOOMBOX!!1 😾-dance-lie-blinking-padded-4x" src="https://github.com/user-attachments/assets/9a25b2ea-685a-4ef2-8bf1-70054004c05b" />
-<img width="216" height="220" alt="pony-town-# _🐺⚡_ ‼⁉ ファイター - COIL!!1 🐾-dance-lie-blinking-padded-toy198-4x" src="https://github.com/user-attachments/assets/da4e4a92-e759-4bd3-ba0a-235c11c5e8e4" />
-
-
-<img width="396" height="224" alt="tumblr_1b6b648d5c5f113fdc8b0bde4f400268_f3fe5e93_400" src="https://github.com/user-attachments/assets/a6026a86-f1ab-4024-ac03-edb83cc26eb4" />
+<img width="216" height="220" alt="pony-town-# _🐺⚡_ ‼⁉ ファイター - COIL!!1 🐾-dance-lie-blinking-padded-toy198-4x" src="https://github.com/user-attachments/assets/da4e4a92-e759-4bd3-ba0a-235c11c5e8e4" /> 
 
 <img width="2048" height="2048" alt="tumblr_a8d63d71546d79ff693d4ec557b1aacc_dc7bbac3_2048" src="https://github.com/user-attachments/assets/71cc6875-2fef-49e8-8730-9fa1fbe494cd" />
 
