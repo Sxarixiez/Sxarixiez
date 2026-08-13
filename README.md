@@ -4,6 +4,8 @@
 <img width="212" height="228" alt="pony-town-_💉_ ‼⁉ - SUBSPACE!!1 🙀-dance-lie-blinking-padded-toy421-4x" src="https://github.com/user-attachments/assets/78afb63f-ebd8-4706-84ef-5a8db33369f9" />
 <img width="216" height="220" alt="pony-town-_💉⚠_ ‼⁉ - _MY INVENTION!!1_-dance-lie-blinking-padded-toy421-4x" src="https://github.com/user-attachments/assets/1d699609-ab97-4932-8fa8-c570a992da46" /> 
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F70878&center=true&vCenter=true&width=435&separator=%3C&lines=subspace+skins+;+jester+%2C+cutie)](https://git.io/typing-svg) 
+
 <img width="220" height="200" alt="pony-town-_⭐🎭_ ‼⁉ - JESTERSPACE!!1 😺-dance-lie-blinking-padded-4x" src="https://github.com/user-attachments/assets/fd98b511-f5de-43e2-8688-b73adae05e5f" />
 <img width="212" height="200" alt="pony-town-_🍓_ ‼⁉ - CUTIESPACE!!1 😼-dance-lie-blinking-padded-toy365-4x" src="https://github.com/user-attachments/assets/f5bbcf36-60ca-4d80-942e-5a829a84136f" />
 
