@@ -39,6 +39,8 @@
 > - 👽 I'm weird and thats okay <img width="20" height="20" alt="tumblr_8f8e18e4bfa218b754de25619f35dfb2_2e46b69b_75" src="https://github.com/user-attachments/assets/8eb1914b-1bea-46d7-a389-9114bcb02646" />
 > - (●'◡'●) IM SPOOKEE UNSTABLEEE <img width="32" height="34" alt="1d3d0c12" src="https://github.com/user-attachments/assets/29fe1208-f453-4b86-9288-01228c61b995" /><img width="20" height="20" alt="17fc9392" src="https://github.com/user-attachments/assets/8cbfdd10-ac82-440f-a52b-859afcfe2cb9" /><img width="20" height="20" alt="c06f33a3" src="https://github.com/user-attachments/assets/c683339f-4adf-4044-9bc8-cee5d130dad9" /><img width="20" height="20" alt="f9d79ff2" src="https://github.com/user-attachments/assets/c5d61602-1ef8-4844-bf00-53bf4ca247bb" />
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F70878&center=true&vCenter=true&width=435&lines=I'm+also+seen+w+this+three+too+)](https://git.io/typing-svg)
+
 <img width="208" height="192" alt="pony-town-_⛓_ ‼⁉ - AGOTI!!1 🖤-dance-lie-blinking-padded-4x" src="https://github.com/user-attachments/assets/0f55bc31-436b-40d0-b92e-858f7d9a7a53" /> 
 <img width="216" height="196" alt="pony-town-# _🎧_ グーバー ‼⁉ - BOOMBOX!!1 😾-dance-lie-blinking-padded-4x" src="https://github.com/user-attachments/assets/9a25b2ea-685a-4ef2-8bf1-70054004c05b" />
 <img width="216" height="220" alt="pony-town-# _🐺⚡_ ‼⁉ ファイター - COIL!!1 🐾-dance-lie-blinking-padded-toy198-4x" src="https://github.com/user-attachments/assets/da4e4a92-e759-4bd3-ba0a-235c11c5e8e4" />
