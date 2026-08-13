@@ -38,20 +38,6 @@
 
 ![Static Badge](https://img.shields.io/badge/scar!!-red)![Static Badge](https://img.shields.io/badge/SPOKE%20%26%20SUBSPACE%20FICTIONKIN-red)
 
-
-<img width="292" height="72" alt="tumblr_896540b858efc0db38dabe14d235b3b6_67abe804_400" src="https://github.com/user-attachments/assets/e6fa95b8-7361-4c19-a2b8-53849b64ad5e" /> 
-<img width="730" height="99" alt="tumblr_96673478de3818d77a91d2dce0a4a911_78c82853_1280" src="https://github.com/user-attachments/assets/5571b606-1f55-45ca-b2c9-ceaec7cdae25" /><img width="730" height="99" alt="tumblr_7d5dd4a05b3f1d78d922db5ccdc9cdc3_6b42db6f_1280" src="https://github.com/user-attachments/assets/0745fa53-6b59-48e2-bed1-40e6cb7781e1" /><img width="250" height="150" alt="tumblr_1dd729e37978c80925a76c6fa47216cc_4ca82543_250" src="https://github.com/user-attachments/assets/f0858247-319f-4ff9-bba3-9606b822915d" /><img width="250" height="150" alt="tumblr_96ad31b17d393db88a0267950c1e53e9_02922b54_250" src="https://github.com/user-attachments/assets/42813faa-ba55-4b88-9b49-8502a3691419" />
-<img width="250" height="150" alt="tumblr_6cadbcb97da06dc4c4eb96a19558e706_e2359ff8_250" src="https://github.com/user-attachments/assets/4a6a5706-7f6e-4498-8db8-1ab7fa0c205c" /><img width="250" height="150" alt="annoyed-tf2" src="https://github.com/user-attachments/assets/27be4cf0-6a15-41c1-9525-e9feb9795a4a" /> 
-
-<img width="99" height="53" alt="tumblr_37e48f1de50914bc0daa5da26d12a8fa_7463b1a7_100" src="https://github.com/user-attachments/assets/d8aa36d3-3077-4629-a6b8-ab20a304b72d" /><img width="99" height="56" alt="tumblr_b0b45139ce8218faef9a1117a5814fc9_4fc741ba_100" src="https://github.com/user-attachments/assets/6f732194-5ff1-4e49-8e4b-a62f9cebd1e1" />
-<img width="99" height="56" alt="tumblr_f2d9045612e9619d2c52b022e19ac5f3_2db6701a_100" src="https://github.com/user-attachments/assets/291165dd-9c9b-44ce-b4ad-4acc526ebcd0" />
-<img width="114" height="18" alt="tumblr_b7b040961f29bcdd5aa0b38d336a89be_e20d4ea2_250" src="https://github.com/user-attachments/assets/c07dc727-1813-438d-be85-d36c3e261085" /><img width="114" height="18" alt="tumblr_5819df40f986d1ca2d13c4dd748565d7_5af18e7d_250" src="https://github.com/user-attachments/assets/b9c43232-f880-493f-a7c8-bb4000fd5099" /> <img width="80" height="80" alt="spoke" src="https://github.com/user-attachments/assets/d90ee7b6-e84c-4b33-a1e9-3669af57a58a" />
-
-> - 🦀 *SPOKE FICTIONKIN*‼️‼️  <img width="20" height="20" alt="886c2fe0" src="https://github.com/user-attachments/assets/7fbe3fad-d861-435f-bb49-40582124afb6" />
-> - 🦈 Multifandomer / editor / artist <img width="20" height="20" alt="f30e1dc8" src="https://github.com/user-attachments/assets/6a690a6c-b294-4c35-8e1e-417d5fc656cd" />
-> - 👽 I'm weird and thats okay <img width="20" height="20" alt="tumblr_8f8e18e4bfa218b754de25619f35dfb2_2e46b69b_75" src="https://github.com/user-attachments/assets/8eb1914b-1bea-46d7-a389-9114bcb02646" />
-> - (●'◡'●) IM SPOOKEE UNSTABLEEE <img width="32" height="34" alt="1d3d0c12" src="https://github.com/user-attachments/assets/29fe1208-f453-4b86-9288-01228c61b995" /><img width="20" height="20" alt="17fc9392" src="https://github.com/user-attachments/assets/8cbfdd10-ac82-440f-a52b-859afcfe2cb9" /><img width="20" height="20" alt="c06f33a3" src="https://github.com/user-attachments/assets/c683339f-4adf-4044-9bc8-cee5d130dad9" /><img width="20" height="20" alt="f9d79ff2" src="https://github.com/user-attachments/assets/c5d61602-1ef8-4844-bf00-53bf4ca247bb" />
-
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F70878&center=true&vCenter=true&width=435&lines=I'm+also+seen+w+this+three+too+)](https://git.io/typing-svg)
 
 <img width="208" height="192" alt="pony-town-_⛓_ ‼⁉ - AGOTI!!1 🖤-dance-lie-blinking-padded-4x" src="https://github.com/user-attachments/assets/0f55bc31-436b-40d0-b92e-858f7d9a7a53" /> 
