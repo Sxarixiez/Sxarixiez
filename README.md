@@ -2,6 +2,11 @@
 
 # THE BIGGEST MULTIFANDOMER YOU've EVER SEEN hi IM SPOKE IRL ‼️‼️‼️🍕🧪
 
+<img width="236" height="240" alt="pony-town-_⭐🎭_ ‼⁉ - JESTERSPACE!!1 😺-dance-4-blinking-padded-4x" src="https://github.com/user-attachments/assets/0faeca1e-9a67-4f60-95b4-bbf0a5b7a2ba" />
+<img width="260" height="240" alt="pony-town-_🍓_ ‼⁉ - CUTIESPACE!!1 😼-dance-4-blinking-padded-toy365-4x" src="https://github.com/user-attachments/assets/efcebcfb-9000-4757-aa8b-792a2dd758e1" />
+<img width="272" height="260" alt="pony-town-_💉⚠_ ‼⁉ - _MY INVENTION!!1_-dance-4-blinking-padded-toy421-4x" src="https://github.com/user-attachments/assets/fb887448-9bd7-4c19-a2a0-21a4f7e609de" />
+<img width="268" height="268" alt="pony-town-_💉_ ‼⁉ - SUBSPACE!!1 🙀-dance-4-blinking-padded-toy421-4x" src="https://github.com/user-attachments/assets/aeb5c133-7edc-4e14-97e1-5f95778aab57" />
+
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=500&pause=100&color=03F75C&center=true&vCenter=true&width=435&lines=Undertale%2FDeltarune;Unstable+SMP;Lifesteal+SMP;Kaboodle+SMP;Friday+Night+Funkin;Five+Nights+at+Freddy's;Psychopomp+GOLD;ULTRAKILL;ENA+DREAM+BBQ;Sally+Face;Undertale+Yellow;Underverse;SANS+AUS;Katana+ZERO;Hotline+Miami;Pizza+Tower;Doki+Doki+Literature+Club;Helltaker;Awaria;Cuphead;Bendy;Bomb+Rush+Cyberfunk;INDIE+CROSS;Murder+Drones;Gameoverse;ENA+%5Bseries%5D;PlanetRonika;INVADER+ZIM;HOMESTUCK;ANTON+BLAST;Buckshot+Roulette+;Zenless+Zone+Zero;GODZILLA+or+MONSTERVERSE+IN+GENERAL;TRANSFORMERS;Postal;SOLARBALLS;COUNTRYBALLS;SMG4;DOOM;HALO;ONE+WHEAT+MARK;Vocaloid;Dead+Cells;Pokemon;EDDSWORLD;Pressure;Phighting;DIE+OF+DEATH;FORSAKEN;TRUD;Digital+Circus+%5Bidk..%5D;Battle+for+Dream+Island;The+Power+of+Two;Spiderverse;Chainsaw+Man;Hollow+Knight+;Hollow+Knight%3A+SILKSONG;Animation+VS+Minecraft+;Animation+VS+Animator;Sonic+The+Hedgehog;REGRETEVATOR;AND+MORE!!1!1)](https://git.io/typing-svg)  
 
 ![Static Badge](https://img.shields.io/badge/scar!!-red)![Static Badge](https://img.shields.io/badge/SPOKE%20%26%20SUBSPACE%20FICTIONKIN-red)
