@@ -1,6 +1,9 @@
 <img width="1280" height="511" alt="tumblr_d5cb795a50f03968757ff8024cbd69bb_891909f1_1280" src="https://github.com/user-attachments/assets/6997be1b-fcf3-4784-b059-e17f661c6a46" /> 
 
 # THE BIGGEST MULTIFANDOMER YOU've EVER SEEN hi IM SPOKE IRL ‼️‼️‼️🍕🧪
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=40&size=10&pause=1000&color=F70878&center=true&vCenter=true&width=435&separator=%3C&lines=subspace+original++;+D+O+++N++O+T++C+O+P+Y%3C+OR+YOUR+GETTING+SLIMED)](https://git.io/typing-svg)
+
 <img width="212" height="228" alt="pony-town-_💉_ ‼⁉ - SUBSPACE!!1 🙀-dance-lie-blinking-padded-toy421-4x" src="https://github.com/user-attachments/assets/78afb63f-ebd8-4706-84ef-5a8db33369f9" />
 <img width="216" height="220" alt="pony-town-_💉⚠_ ‼⁉ - _MY INVENTION!!1_-dance-lie-blinking-padded-toy421-4x" src="https://github.com/user-attachments/assets/1d699609-ab97-4932-8fa8-c570a992da46" /> 
 
