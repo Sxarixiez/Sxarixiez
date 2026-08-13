@@ -1,6 +1,3 @@
-<img width="216" height="196" alt="pony-town-# _⚠💊_ ‼ - ꜱᴀʀᴀʜ!! ザ・グラディエント-dance-lie-blinking-padded-toy269-4x" src="https://github.com/user-attachments/assets/09c031c0-90e6-4e12-a390-2a7e4c7f1a0c" />
-<img width="204" height="240" alt="pony-town-# _⚠💊_ ‼ - ꜱᴀʀᴀʜ!! プッシュ式電話機-dance-3-blinking-padded-toy269-4x" src="https://github.com/user-attachments/assets/da1066cc-d211-4cea-88c8-b126a4225952" />
-
 <img width="1280" height="511" alt="tumblr_d5cb795a50f03968757ff8024cbd69bb_891909f1_1280" src="https://github.com/user-attachments/assets/6997be1b-fcf3-4784-b059-e17f661c6a46" /> 
 
 # THE BIGGEST MULTIFANDOMER YOU've EVER SEEN hi IM SPOKE IRL ‼️‼️‼️🍕🧪
@@ -8,6 +5,8 @@
 <img width="272" height="260" alt="pony-town-_💉⚠_ ‼⁉ - _MY INVENTION!!1_-dance-4-blinking-padded-toy421-4x" src="https://github.com/user-attachments/assets/fb887448-9bd7-4c19-a2a0-21a4f7e609de" />
 <img width="236" height="240" alt="pony-town-_⭐🎭_ ‼⁉ - JESTERSPACE!!1 😺-dance-4-blinking-padded-4x" src="https://github.com/user-attachments/assets/0faeca1e-9a67-4f60-95b4-bbf0a5b7a2ba" />
 <img width="260" height="240" alt="pony-town-_🍓_ ‼⁉ - CUTIESPACE!!1 😼-dance-4-blinking-padded-toy365-4x" src="https://github.com/user-attachments/assets/efcebcfb-9000-4757-aa8b-792a2dd758e1" />
+<img width="216" height="196" alt="pony-town-# _⚠💊_ ‼ - ꜱᴀʀᴀʜ!! ザ・グラディエント-dance-lie-blinking-padded-toy269-4x" src="https://github.com/user-attachments/assets/09c031c0-90e6-4e12-a390-2a7e4c7f1a0c" />
+<img width="204" height="240" alt="pony-town-# _⚠💊_ ‼ - ꜱᴀʀᴀʜ!! プッシュ式電話機-dance-3-blinking-padded-toy269-4x" src="https://github.com/user-attachments/assets/da1066cc-d211-4cea-88c8-b126a4225952" />
 
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=500&pause=100&color=03F75C&center=true&vCenter=true&width=435&lines=Undertale%2FDeltarune;Unstable+SMP;Lifesteal+SMP;Kaboodle+SMP;Friday+Night+Funkin;Five+Nights+at+Freddy's;Psychopomp+GOLD;ULTRAKILL;ENA+DREAM+BBQ;Sally+Face;Undertale+Yellow;Underverse;SANS+AUS;Katana+ZERO;Hotline+Miami;Pizza+Tower;Doki+Doki+Literature+Club;Helltaker;Awaria;Cuphead;Bendy;Bomb+Rush+Cyberfunk;INDIE+CROSS;Murder+Drones;Gameoverse;ENA+%5Bseries%5D;PlanetRonika;INVADER+ZIM;HOMESTUCK;ANTON+BLAST;Buckshot+Roulette+;Zenless+Zone+Zero;GODZILLA+or+MONSTERVERSE+IN+GENERAL;TRANSFORMERS;Postal;SOLARBALLS;COUNTRYBALLS;SMG4;DOOM;HALO;ONE+WHEAT+MARK;Vocaloid;Dead+Cells;Pokemon;EDDSWORLD;Pressure;Phighting;DIE+OF+DEATH;FORSAKEN;TRUD;Digital+Circus+%5Bidk..%5D;Battle+for+Dream+Island;The+Power+of+Two;Spiderverse;Chainsaw+Man;Hollow+Knight+;Hollow+Knight%3A+SILKSONG;Animation+VS+Minecraft+;Animation+VS+Animator;Sonic+The+Hedgehog;REGRETEVATOR;AND+MORE!!1!1)](https://git.io/typing-svg)  
@@ -28,6 +27,7 @@
 > - 👽 I'm weird and thats okay <img width="20" height="20" alt="tumblr_8f8e18e4bfa218b754de25619f35dfb2_2e46b69b_75" src="https://github.com/user-attachments/assets/8eb1914b-1bea-46d7-a389-9114bcb02646" />
 > - (●'◡'●) IM SPOOKEE UNSTABLEEE <img width="32" height="34" alt="1d3d0c12" src="https://github.com/user-attachments/assets/29fe1208-f453-4b86-9288-01228c61b995" /><img width="20" height="20" alt="17fc9392" src="https://github.com/user-attachments/assets/8cbfdd10-ac82-440f-a52b-859afcfe2cb9" /><img width="20" height="20" alt="c06f33a3" src="https://github.com/user-attachments/assets/c683339f-4adf-4044-9bc8-cee5d130dad9" /><img width="20" height="20" alt="f9d79ff2" src="https://github.com/user-attachments/assets/c5d61602-1ef8-4844-bf00-53bf4ca247bb" />
 
+<img width="208" height="192" alt="pony-town-_⛓_ ‼⁉ - AGOTI!!1 🖤-dance-lie-blinking-padded-4x" src="https://github.com/user-attachments/assets/0f55bc31-436b-40d0-b92e-858f7d9a7a53" /> 
 <img width="212" height="256" alt="pony-town-# _🎧_ グーバー ‼⁉ - BOOMBOX!!1 😾-dance-5-blinking-padded-4x" src="https://github.com/user-attachments/assets/03d01544-0007-4c89-b3e0-b1ae2af8aa0e" />
 <img width="212" height="280" alt="pony-town-# _🐺⚡_ ‼⁉ ファイター - COIL!!1 🐾-dance-5-blinking-padded-toy198-4x" src="https://github.com/user-attachments/assets/22896967-8a58-4a32-992a-3f8e3e91f2f8" />
 
@@ -230,7 +230,7 @@ ENTP | current comfort fandoms; ultrakill, undertale/deltarune, psychopomp, crk,
 
 multifandomer + autistic + has adhd + he/him/all/she/her/they/them/xe/xem/xyr + aroace (aromantic asexual)
 
-<img width="208" height="192" alt="pony-town-_⛓_ ‼⁉ - AGOTI!!1 🖤-dance-lie-blinking-padded-4x" src="https://github.com/user-attachments/assets/0f55bc31-436b-40d0-b92e-858f7d9a7a53" /> 
+
 
 
 
