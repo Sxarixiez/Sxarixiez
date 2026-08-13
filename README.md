@@ -33,8 +33,8 @@
 > - (●'◡'●) IM SPOOKEE UNSTABLEEE <img width="32" height="34" alt="1d3d0c12" src="https://github.com/user-attachments/assets/29fe1208-f453-4b86-9288-01228c61b995" /><img width="20" height="20" alt="17fc9392" src="https://github.com/user-attachments/assets/8cbfdd10-ac82-440f-a52b-859afcfe2cb9" /><img width="20" height="20" alt="c06f33a3" src="https://github.com/user-attachments/assets/c683339f-4adf-4044-9bc8-cee5d130dad9" /><img width="20" height="20" alt="f9d79ff2" src="https://github.com/user-attachments/assets/c5d61602-1ef8-4844-bf00-53bf4ca247bb" />
 
 <img width="208" height="192" alt="pony-town-_⛓_ ‼⁉ - AGOTI!!1 🖤-dance-lie-blinking-padded-4x" src="https://github.com/user-attachments/assets/0f55bc31-436b-40d0-b92e-858f7d9a7a53" /> 
-<img width="212" height="256" alt="pony-town-# _🎧_ グーバー ‼⁉ - BOOMBOX!!1 😾-dance-5-blinking-padded-4x" src="https://github.com/user-attachments/assets/03d01544-0007-4c89-b3e0-b1ae2af8aa0e" />
-<img width="212" height="280" alt="pony-town-# _🐺⚡_ ‼⁉ ファイター - COIL!!1 🐾-dance-5-blinking-padded-toy198-4x" src="https://github.com/user-attachments/assets/22896967-8a58-4a32-992a-3f8e3e91f2f8" />
+<img width="216" height="196" alt="pony-town-# _🎧_ グーバー ‼⁉ - BOOMBOX!!1 😾-dance-lie-blinking-padded-4x" src="https://github.com/user-attachments/assets/9a25b2ea-685a-4ef2-8bf1-70054004c05b" />
+<img width="216" height="220" alt="pony-town-# _🐺⚡_ ‼⁉ ファイター - COIL!!1 🐾-dance-lie-blinking-padded-toy198-4x" src="https://github.com/user-attachments/assets/da4e4a92-e759-4bd3-ba0a-235c11c5e8e4" />
 
 <img width="396" height="224" alt="tumblr_1b6b648d5c5f113fdc8b0bde4f400268_f3fe5e93_400" src="https://github.com/user-attachments/assets/a6026a86-f1ab-4024-ac03-edb83cc26eb4" />
 
