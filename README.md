@@ -198,6 +198,9 @@ https://scarriotzz1x4.straw.page
 <img width="20" height="20" alt="c435c95b" src="https://github.com/user-attachments/assets/6e50ad48-79a6-4461-9d67-71edbf9b0276" />
 <img width="20" height="20" alt="42be643a" src="https://github.com/user-attachments/assets/02d6f8c1-8cc6-4902-bf57-d73f81fba64c" />
 
+<img width="150" height="20" alt="tumblr_6d51dbbd0b8d44374f09a5d80c6c074f_ce77647d_250" src="https://github.com/user-attachments/assets/97b688a9-336c-42b0-b184-ed8d5e64dd37" />
+<img width="150" height="20" alt="tumblr_f405f6b27ce0d23116b89243bc5210db_c2cd1926_250" src="https://github.com/user-attachments/assets/e0772b04-e648-4488-86f6-1c9ffb918a67" />
+
 ᴅᴜᴍʙ 7ᴛᴇᴇɴ -ᴍɪɴᴏʀ- ʟɪᴛᴛʟᴇ ꜱɪʟʟʏ ᴀꜱꜰ ᴀᴜᴅʜᴅ ʙᴏʏɢɪʀʟᴛʜɪɴɢ [ᴀɴʏ ᴘʀᴏɴᴏᴜɴꜱ] #𝙏𝙃𝙀𝘿𝘼𝙍𝙆𝙇𝙊𝙍𝘿𝙎𝙄𝙈𝙋 #ˢᴴᴬᴿᴷᶠᴵᶜᵀᴵⱽᴱ 
 <img width="798" height="100" alt="image" src="https://github.com/user-attachments/assets/ea50ff84-3b49-44bc-a055-47d8b8d6aa3c" />
 <img width="150" height="20" alt="blinkies (1)" src="https://github.com/user-attachments/assets/6b3f960c-8a37-4109-baad-71d57ab9cbf2" />
