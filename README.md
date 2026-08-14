@@ -5,7 +5,8 @@
 <img width="498" height="281" alt="neptune-solarballs" src="https://github.com/user-attachments/assets/6d8710d1-4416-4d8b-b8fc-fdc247461ac2" />
 
 ![Static Badge](https://img.shields.io/badge/scar!!-red)![Static Badge](https://img.shields.io/badge/SPOKE%20%26%20SUBSPACE%20FICTIONKIN-red)
-![Static Badge](https://img.shields.io/badge/the%20some%20of%20layouts%2C%20blinkies%2C%20dividers%2C%20graphics%20are%20not%20mine%20and%20their%20all%20from%20tumblr-dark%20pink%20)
+![Static Badge](https://img.shields.io/badge/some%20of%20layouts%2C%20blinkies%2C%20dividers%2C%20graphics%20are%20not%20mine%20and%20their%20all%20from%20tumblr-green)
+
 
 
 <img width="292" height="72" alt="tumblr_896540b858efc0db38dabe14d235b3b6_67abe804_400" src="https://github.com/user-attachments/assets/e6fa95b8-7361-4c19-a2b8-53849b64ad5e" /> 
