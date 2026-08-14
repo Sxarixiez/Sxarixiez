@@ -250,7 +250,7 @@ ENTP | current comfort fandoms; ultrakill, undertale/deltarune, psychopomp, crk,
 
 multifandomer + autistic + has adhd + he/him/all/she/her/they/them/xe/xem/xyr + aroace (aromantic asexual)
 
-
+<img width="1025" height="604" alt="tumblr_98d551e7d585eabfa93243b073b0a0dd_7610a92e_1280" src="https://github.com/user-attachments/assets/347dfcfb-4e4b-440c-a0f2-bbd39c2c4516" />
 <img width="698" height="689" alt="tumblr_9fa83d4b86752b01528c7edafb1c3184_91dd2055_1280" src="https://github.com/user-attachments/assets/b2b569d0-d997-461a-90e5-78021b4c7ac6" />
 
 
