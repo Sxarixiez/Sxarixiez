@@ -24,6 +24,16 @@
 > - 👽 I'm weird and thats okay <img width="20" height="20" alt="tumblr_8f8e18e4bfa218b754de25619f35dfb2_2e46b69b_75" src="https://github.com/user-attachments/assets/8eb1914b-1bea-46d7-a389-9114bcb02646" />
 > - (●'◡'●) IM SPOOKEE UNSTABLEEE <img width="32" height="34" alt="1d3d0c12" src="https://github.com/user-attachments/assets/29fe1208-f453-4b86-9288-01228c61b995" /><img width="20" height="20" alt="17fc9392" src="https://github.com/user-attachments/assets/8cbfdd10-ac82-440f-a52b-859afcfe2cb9" /><img width="20" height="20" alt="c06f33a3" src="https://github.com/user-attachments/assets/c683339f-4adf-4044-9bc8-cee5d130dad9" /><img width="20" height="20" alt="f9d79ff2" src="https://github.com/user-attachments/assets/c5d61602-1ef8-4844-bf00-53bf4ca247bb" />
 
+![Static Badge](https://img.shields.io/badge/sign%20my%20atabook%20please!!1-yellow)
+
+
+https://sc4rri0tzzxr.atabook.org/
+
+![Static Badge](https://img.shields.io/badge/also%20look%20at%20my%20lazy%20ass%20strawpage-red)
+
+
+https://scarriotzz1x4.straw.page
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=wh95bd2d2nzt9nw0o7ozlsule&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)<img width="150" height="150" alt="ena-ena-dream-bbq" src="https://github.com/user-attachments/assets/055e9a36-9acd-4110-97c2-455aa5868533" />  <img width="90" height="90" alt="jevil-delatrune" src="https://github.com/user-attachments/assets/b1fca7f8-2bbf-46fd-b90a-b1b80f2a3cd9" /><img width="90" height="90" alt="deltarune-susie" src="https://github.com/user-attachments/assets/8269458c-de58-4e3c-8774-6b9bb36ea79c" />
 <img width="300" height="40" alt="sick-hell" src="https://github.com/user-attachments/assets/d9b9625d-56e3-4dde-9cb7-d2aea0708832" /><img width="99" height="56" alt="blinkies-hatsune-miku" src="https://github.com/user-attachments/assets/486dd61f-f13f-459a-a019-ee8b61ad70cf" />
  <img width="99" height="56" alt="blinkies (7)" src="https://github.com/user-attachments/assets/377295de-09d3-47bb-a154-8f88f21d7bfe" /><img width="100" height="50" alt="blinkies-needy-streamer-overload" src="https://github.com/user-attachments/assets/e97e1305-4845-4dc4-866d-b77e21d71243" />
@@ -90,16 +100,6 @@
 
 ![Static Badge](https://img.shields.io/badge/HELLO%2C%20WELCOME%20TO%20MY%20GITHUB%20PAGE%20THIS%20IS%20ONLY%20FOR%20THE%20PONY%20TOWN%20GAME%20SAYING%20IT%20AGAIN%20I%20DONT%20DO%20JOBS%20IM%20A%20MINOR.-yellow) 
 
-
-
-![Static Badge](https://img.shields.io/badge/sign%20my%20atabook%20please!!1-yellow)
-
-https://sc4rri0tzzxr.atabook.org/
-
-![Static Badge](https://img.shields.io/badge/also%20look%20at%20my%20lazy%20ass%20strawpage-red)
-
-
-https://scarriotzz1x4.straw.page
 
 <img width="735" height="400" alt="tumblr_d96406df48b1874bbe05f62079173cf1_273965d9_640" src="https://github.com/user-attachments/assets/00721ec0-dbce-4578-a4e9-109c12a865e4" />
 
