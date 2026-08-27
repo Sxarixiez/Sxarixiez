@@ -54,8 +54,8 @@ https://scarriotzz1x4.straw.page
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=63F700&center=true&vCenter=true&width=435&separator=%3C&lines=SARAH!!+main+oc;+two+version!)](https://git.io/typing-svg)
 
-<img width="216" height="196" alt="pony-town-# _⚠💊_ ‼ - ꜱᴀʀᴀʜ!! ザ・グラディエント-dance-lie-blinking-padded-toy269-4x" src="https://github.com/user-attachments/assets/09c031c0-90e6-4e12-a390-2a7e4c7f1a0c" />
-<img width="216" height="196" alt="pony-town-# _⚠💊_ ‼ - ꜱᴀʀᴀʜ!! プッシュ式電話機-dance-lie-blinking-padded-toy269-4x" src="https://github.com/user-attachments/assets/6bb87b46-5dcf-4811-96fd-1f3aa7184176" />
+<img width="220" height="196" alt="pony-town-# _⚠💊_ ‼ - ꜱᴀʀᴀʜ !! ザ・グラディエント-dance-lie-blinking-padded-toy269-4x" src="https://github.com/user-attachments/assets/45d89d14-8aad-422f-ba78-d7f3dc9c84a9" />
+<img width="220" height="196" alt="pony-town-# _⚠💊_ ‼ - ꜱᴀʀᴀʜ !! プッシュ式電話機-dance-lie-blinking-padded-toy269-4x" src="https://github.com/user-attachments/assets/bc7ab018-8f76-476c-a3e0-e1c864132172" />
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F70878&center=true&vCenter=true&width=435&lines=I'm+also+seen+w+this+three+too+)](https://git.io/typing-svg)
 
