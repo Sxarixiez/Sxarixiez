@@ -367,6 +367,8 @@ https://scarriotzz1x4.straw.page
 <img width="736" height="736" alt="indir - 2026-09-01T090349 335" src="https://github.com/user-attachments/assets/127a00a4-7b2b-4524-93dd-6f92d7230584" />
 
 <img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
+# 𝙈𝙔 𝙁𝙄𝘾𝙏𝙄𝙊𝙉𝘼𝙇 𝙒𝙄𝙁𝙀 𝘽𝙏𝙒 :3 
+<img width="498" height="498" alt="zenless-zone-zero-zzz" src="https://github.com/user-attachments/assets/e16491cd-52f0-4684-9e7b-888dc9fb949d" />
 
 <img width="395" height="498" alt="jane-doe-zzz-zenless-zone-zero" src="https://github.com/user-attachments/assets/eb9be32d-ca1e-4709-9717-4a01a3eb79b6" /><img width="220" height="292" alt="jane-doe-jane-doe-zzz" src="https://github.com/user-attachments/assets/b3d50665-d928-4add-b39b-1f79daaa4d7d" />
 <img width="498" height="498" alt="jane-doe-zenless-zone-zero (1)" src="https://github.com/user-attachments/assets/8c1ab3af-e8b2-43ca-a3a7-e0595987d51e" />
@@ -378,7 +380,6 @@ https://scarriotzz1x4.straw.page
 <img width="498" height="362" alt="absolute-cinema-jane-doe" src="https://github.com/user-attachments/assets/da960b5f-f5d4-4268-9353-d1029d29eefc" />
 <img width="498" height="324" alt="jane-doe-jane-doe-zzz (1)" src="https://github.com/user-attachments/assets/938f1ae6-49f5-4031-b2d6-07be47beb57a" />
 <img width="417" height="498" alt="oh-my-goodness-gracious-zzz" src="https://github.com/user-attachments/assets/7e861e28-f342-4a80-ad48-ed927f7689b9" />
-<img width="498" height="498" alt="zenless-zone-zero-zzz" src="https://github.com/user-attachments/assets/e16491cd-52f0-4684-9e7b-888dc9fb949d" />
 <img width="458" height="498" alt="spokeishere-spoke-is-here" src="https://github.com/user-attachments/assets/3c8db863-a58a-45e7-a9ee-1c56d3c32039" /> 
 
 <!--
