@@ -2,7 +2,7 @@
 
 <img width="1280" height="720" alt="tumblr_95c9bf94e99530170b5ad741cd24b316_1f518497_1280" src="https://github.com/user-attachments/assets/9c844d24-d313-4009-ba8a-97418df1ce40" />
 
-# THE BIGGEST MULTIFANDOMER YOU've EVER SEEN hi IM SPOKE IRL ‼️‼️‼️🍕🧪
+# ᴛʜᴇ ʙɪɢɢᴇꜱᴛ ᴍᴜʟᴛɪꜰᴀɴᴅᴏᴍᴇʀ ʏᴏᴜ'ᴠᴇ ᴇᴠᴇʀ ꜱᴇᴇɴ ʜɪ ɪᴍ ꜱᴘᴏᴋᴇ ɪʀʟ ‼️‼️‼️🍕🧪
 
 <img width="1500" height="500" alt="tumblr_9e66e4a5ff151be72ec96287638cca49_b5861e49_2048" src="https://github.com/user-attachments/assets/1e72528e-d714-4335-9c23-8e3a2cd43562" />
 
