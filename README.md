@@ -76,6 +76,7 @@ https://scarriotzz1x4.straw.page
 
 <img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
 
+
 <img width="396" height="224" alt="tumblr_1b6b648d5c5f113fdc8b0bde4f400268_f3fe5e93_400" src="https://github.com/user-attachments/assets/a6026a86-f1ab-4024-ac03-edb83cc26eb4" />
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=40&size=10&pause=1000&color=F70878&center=true&vCenter=true&width=435&separator=%3C&lines=subspace+original++;+D+O+++N++O+T++C+O+P+Y%3C+OR+YOUR+GETTING+SLIMED)](https://git.io/typing-svg)
