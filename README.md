@@ -8,7 +8,27 @@
 
 <img width="960" height="540" alt="tumblr_4221e42865bbaab0a7336d7d561835cf_56d000af_1280" src="https://github.com/user-attachments/assets/0ab5d33d-dc2f-4038-b60c-295211e9e9c1" />
 <img width="150" height="20" alt="tumblr_f25e8c8f9634a5cc987ace8bdb785b14_5cb7fd8a_250" src="https://github.com/user-attachments/assets/cf93f702-6b24-43d1-8e20-efc1f7e75c7b" />
-<img width="150" height="20" alt="tumblr_f1ff9718f9a3e13f44952f7f04757a65_8b6a6703_250" src="https://github.com/user-attachments/assets/db97db88-1876-4261-bfee-a9925dd586aa" />
+<img width="150" height="20" alt="tumblr_f1ff9718f9a3e13f44952f7f04757a65_8b6a6703_250" src="https://github.com/user-attachments/assets/db97db88-1876-4261-bfee-a9925dd586aa" /><img width="150" height="20" alt="blinkie-tf2 (1)" src="https://github.com/user-attachments/assets/c4c255eb-9dd5-4bfc-9fec-e2ea07ac473d" />
+<img width="150" height="20" alt="petscop-petscop-paul" src="https://github.com/user-attachments/assets/b4cf5f18-addb-4998-8ee9-b32ca6fbb357" />
+<img width="150" height="20" alt="black-piano" src="https://github.com/user-attachments/assets/174d9cdc-a7d4-4c03-aae2-1a2602c3c962" />
+<img width="150" height="20" alt="blinkie-tf2" src="https://github.com/user-attachments/assets/1e5d837c-bad0-4f77-ac34-437d80c4a27f" />
+<img width="150" height="20" alt="rawr-blinkies" src="https://github.com/user-attachments/assets/58ba728f-cd68-4107-af26-964a417a007a" />
+<img width="150" height="20" alt="blinkies-blinkie (2)" src="https://github.com/user-attachments/assets/58f7cf84-d398-4d5e-938e-33da98dea54f" />
+<img width="150" height="20" alt="blinkies-blinkie (1)" src="https://github.com/user-attachments/assets/8fb7fee6-48ae-4a73-8f32-ed9ca93deb70" />
+<img width="150" height="20" alt="blinkies (9)" src="https://github.com/user-attachments/assets/27ab7214-2e97-49cf-874e-89f7ed408a1e" />
+<img width="150" height="20" alt="blinkies (8)" src="https://github.com/user-attachments/assets/411300f2-eaca-497e-a88c-583ed26d5407" />
+<img width="446" height="60" alt="blinkie-saiki-k" src="https://github.com/user-attachments/assets/9827541e-eaab-4c9c-aa0a-91111cc4abc5" />
+<img width="150" height="20" alt="music-dubstep" src="https://github.com/user-attachments/assets/0af3c90f-f58f-49a5-9440-d7fa5960fb93" />
+<img width="150" height="20" alt="jeff-the-killer-jeff-the-killer-blinkie" src="https://github.com/user-attachments/assets/653b0c3e-5c67-448d-8a21-bdb9016fe11c" />
+<img width="498" height="65" alt="invader-zim-zim" src="https://github.com/user-attachments/assets/76121a1e-2bfc-4205-bf5a-3b28405f91bb" />
+<img width="150" height="20" alt="blinkie-pixel" src="https://github.com/user-attachments/assets/766efa9b-3094-4446-a0d1-9fb83cb64df4" />
+<img width="150" height="20" alt="forsaken-forsaken-roblox (1)" src="https://github.com/user-attachments/assets/70ed53ab-fb5e-4412-a7cb-f9642fb74d3d" />
+<img width="150" height="20" alt="cyberpunk-2077-blinkie-blinkies" src="https://github.com/user-attachments/assets/1a6db90d-530e-4a7c-ad3c-bb4491d659bb" />
+<img width="150" height="20" alt="blinkie-scout-tf2" src="https://github.com/user-attachments/assets/eea5513e-56f8-469c-bb55-54a802d9c51f" />
+<img width="150" height="20" alt="dropped-head" src="https://github.com/user-attachments/assets/ad3c0983-8206-44c5-91b5-7727b1e597dd" />
+<img width="498" height="65" alt="pixel-blinkie" src="https://github.com/user-attachments/assets/4a802eba-a5cc-4bce-a132-9f6449ff02c1" />
+<img width="498" height="65" alt="nightcore-rainbow" src="https://github.com/user-attachments/assets/9b71704f-4fcc-4598-a689-8f95737abdd9" />
+<img width="150" height="20" alt="blue-blinkie" src="https://github.com/user-attachments/assets/bdb7b426-f160-4851-b55e-1d8c2d0b53ff" />
 <img width="498" height="65" alt="neurodivergent-autism" src="https://github.com/user-attachments/assets/e6a8e3e4-57f9-43dc-87d7-d2f8a94cf960" />
 
 <img width="498" height="281" alt="neptune-solarballs" src="https://github.com/user-attachments/assets/6d8710d1-4416-4d8b-b8fc-fdc247461ac2" />
