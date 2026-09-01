@@ -25,13 +25,15 @@
 <img width="150" height="20" alt="blinkie-scout-tf2" src="https://github.com/user-attachments/assets/eea5513e-56f8-469c-bb55-54a802d9c51f" />
 <img width="150" height="20" alt="dropped-head" src="https://github.com/user-attachments/assets/ad3c0983-8206-44c5-91b5-7727b1e597dd" /><img width="150" height="20" alt="blue-blinkie" src="https://github.com/user-attachments/assets/bdb7b426-f160-4851-b55e-1d8c2d0b53ff" /><img width="150" height="20" alt="blinkie-my-chemical-romance" src="https://github.com/user-attachments/assets/606798f6-6bdb-43df-9e11-a2ad9a01452f" />
 
+<img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
+
 <img width="498" height="190" alt="mankind-is-dead-blood-is-fuel" src="https://github.com/user-attachments/assets/3979ced1-544b-43e5-ada3-89d80e0b291d" />
 <img width="498" height="281" alt="neptune-solarballs" src="https://github.com/user-attachments/assets/6d8710d1-4416-4d8b-b8fc-fdc247461ac2" />
 
 ![Static Badge](https://img.shields.io/badge/scar!!-red)![Static Badge](https://img.shields.io/badge/SPOKE%20%26%20SUBSPACE%20FICTIONKIN-red)
 ![Static Badge](https://img.shields.io/badge/some%20of%20layouts%2C%20blinkies%2C%20dividers%2C%20graphics%20are%20not%20mine%20and%20their%20all%20from%20tumblr-green)
 
-
+<img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
 
 <img width="292" height="72" alt="tumblr_896540b858efc0db38dabe14d235b3b6_67abe804_400" src="https://github.com/user-attachments/assets/e6fa95b8-7361-4c19-a2b8-53849b64ad5e" /> 
 <img width="730" height="99" alt="tumblr_96673478de3818d77a91d2dce0a4a911_78c82853_1280" src="https://github.com/user-attachments/assets/5571b606-1f55-45ca-b2c9-ceaec7cdae25" /><img width="730" height="99" alt="tumblr_7d5dd4a05b3f1d78d922db5ccdc9cdc3_6b42db6f_1280" src="https://github.com/user-attachments/assets/0745fa53-6b59-48e2-bed1-40e6cb7781e1" /><img width="250" height="150" alt="tumblr_1dd729e37978c80925a76c6fa47216cc_4ca82543_250" src="https://github.com/user-attachments/assets/f0858247-319f-4ff9-bba3-9606b822915d" /><img width="250" height="150" alt="tumblr_96ad31b17d393db88a0267950c1e53e9_02922b54_250" src="https://github.com/user-attachments/assets/42813faa-ba55-4b88-9b49-8502a3691419" />
@@ -41,12 +43,16 @@
 <img width="99" height="56" alt="tumblr_f2d9045612e9619d2c52b022e19ac5f3_2db6701a_100" src="https://github.com/user-attachments/assets/291165dd-9c9b-44ce-b4ad-4acc526ebcd0" />
 <img width="114" height="18" alt="tumblr_b7b040961f29bcdd5aa0b38d336a89be_e20d4ea2_250" src="https://github.com/user-attachments/assets/c07dc727-1813-438d-be85-d36c3e261085" /><img width="114" height="18" alt="tumblr_5819df40f986d1ca2d13c4dd748565d7_5af18e7d_250" src="https://github.com/user-attachments/assets/b9c43232-f880-493f-a7c8-bb4000fd5099" /> <img width="80" height="80" alt="spoke" src="https://github.com/user-attachments/assets/d90ee7b6-e84c-4b33-a1e9-3669af57a58a" />
 
+<img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
+
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=500&pause=100&color=03F75C&center=true&vCenter=true&width=435&lines=Undertale%2FDeltarune;Unstable+SMP;Lifesteal+SMP;Kaboodle+SMP;Friday+Night+Funkin;Five+Nights+at+Freddy's;Psychopomp+GOLD;ULTRAKILL;ENA+DREAM+BBQ;Sally+Face;Undertale+Yellow;Underverse;SANS+AUS;Katana+ZERO;Hotline+Miami;Pizza+Tower;Doki+Doki+Literature+Club;Helltaker;Awaria;Cuphead;Bendy;Bomb+Rush+Cyberfunk;INDIE+CROSS;Murder+Drones;Gameoverse;ENA+%5Bseries%5D;PlanetRonika;INVADER+ZIM;HOMESTUCK;ANTON+BLAST;Buckshot+Roulette+;Zenless+Zone+Zero;GODZILLA+or+MONSTERVERSE+IN+GENERAL;TRANSFORMERS;Postal;SOLARBALLS;COUNTRYBALLS;SMG4;DOOM;HALO;ONE+WHEAT+MARK;Vocaloid;Dead+Cells;Pokemon;EDDSWORLD;Pressure;Phighting;DIE+OF+DEATH;FORSAKEN;TRUD;Digital+Circus+%5Bidk..%5D;Battle+for+Dream+Island;The+Power+of+Two;Spiderverse;Chainsaw+Man;Hollow+Knight+;Hollow+Knight%3A+SILKSONG;Animation+VS+Minecraft+;Animation+VS+Animator;Sonic+The+Hedgehog;REGRETEVATOR;AND+MORE!!1!1)](https://git.io/typing-svg)  
 
 > - 🦀 *SPOKE FICTIONKIN*‼️‼️  <img width="20" height="20" alt="886c2fe0" src="https://github.com/user-attachments/assets/7fbe3fad-d861-435f-bb49-40582124afb6" />
 > - 🦈 Multifandomer / editor / artist <img width="20" height="20" alt="f30e1dc8" src="https://github.com/user-attachments/assets/6a690a6c-b294-4c35-8e1e-417d5fc656cd" />
 > - 👽 I'm weird and thats okay <img width="20" height="20" alt="tumblr_8f8e18e4bfa218b754de25619f35dfb2_2e46b69b_75" src="https://github.com/user-attachments/assets/8eb1914b-1bea-46d7-a389-9114bcb02646" />
 > - (●'◡'●) IM SPOOKEE UNSTABLEEE <img width="32" height="34" alt="1d3d0c12" src="https://github.com/user-attachments/assets/29fe1208-f453-4b86-9288-01228c61b995" /><img width="20" height="20" alt="17fc9392" src="https://github.com/user-attachments/assets/8cbfdd10-ac82-440f-a52b-859afcfe2cb9" /><img width="20" height="20" alt="c06f33a3" src="https://github.com/user-attachments/assets/c683339f-4adf-4044-9bc8-cee5d130dad9" /><img width="20" height="20" alt="f9d79ff2" src="https://github.com/user-attachments/assets/c5d61602-1ef8-4844-bf00-53bf4ca247bb" />
+
+<img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
 
 ![Static Badge](https://img.shields.io/badge/sign%20my%20atabook%20please!!1-yellow)
 
@@ -58,11 +64,17 @@ https://sc4rri0tzzxr.atabook.org/
 
 https://scarriotzz1x4.straw.page
 
+<img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=wh95bd2d2nzt9nw0o7ozlsule&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)<img width="150" height="150" alt="ena-ena-dream-bbq" src="https://github.com/user-attachments/assets/055e9a36-9acd-4110-97c2-455aa5868533" />  <img width="90" height="90" alt="jevil-delatrune" src="https://github.com/user-attachments/assets/b1fca7f8-2bbf-46fd-b90a-b1b80f2a3cd9" /><img width="90" height="90" alt="deltarune-susie" src="https://github.com/user-attachments/assets/8269458c-de58-4e3c-8774-6b9bb36ea79c" />
 <img width="300" height="40" alt="sick-hell" src="https://github.com/user-attachments/assets/d9b9625d-56e3-4dde-9cb7-d2aea0708832" /><img width="99" height="56" alt="blinkies-hatsune-miku" src="https://github.com/user-attachments/assets/486dd61f-f13f-459a-a019-ee8b61ad70cf" />
  <img width="99" height="56" alt="blinkies (7)" src="https://github.com/user-attachments/assets/377295de-09d3-47bb-a154-8f88f21d7bfe" /><img width="100" height="50" alt="blinkies-needy-streamer-overload" src="https://github.com/user-attachments/assets/e97e1305-4845-4dc4-866d-b77e21d71243" />
 
+<img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
+
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F70000&center=true&width=435&lines=partykiller+%26+anomaly+duo+twin%3A;%40spokishere)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=7C01F7&center=true&vCenter=true&width=435&lines=TAX+duo+%26+Orbital+duo+twin%3A;%40redsundew)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=03F7D6&center=true&vCenter=true&width=435&lines=DOUBLECHROMATIC+DUO+twin%3A;%40itsyula-2)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F74201&center=true&vCenter=true&width=435&lines=BLINDFOLD+BROTHERS+DUO+TWIN%3A;%40itsyula-2)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F74200&center=true&vCenter=true&width=435&lines=YUMMERZ+TRIO+twins%3A;%40loopsieboyy+%26+%40PolishDrBirkin)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F74200&center=true&vCenter=true&width=435&lines=AROACE+TRIO+twins%3A;%40spokishere+%26+%40redsundew)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F70000&center=true&vCenter=true&width=435&lines=AXE+duo+twin%3A;%40VoodooPeople7)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F70000&center=true&vCenter=true&width=435&lines=doomsday+duo+twin%3A;%40Ash1elover)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=06F76E&center=true&vCenter=true&width=435&lines=icysilly+duo+twin%3A;%40dancingc0rpses)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=10&pause=1000&color=F70000&center=true&vCenter=true&width=435&lines=OUTLAW+TRIO+twins%3A;%40Ash1elover+%26+VoodooPeople7)](https://git.io/typing-svg)
+
+<img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
 
 <img width="396" height="224" alt="tumblr_1b6b648d5c5f113fdc8b0bde4f400268_f3fe5e93_400" src="https://github.com/user-attachments/assets/a6026a86-f1ab-4024-ac03-edb83cc26eb4" />
 
@@ -87,13 +99,19 @@ https://scarriotzz1x4.straw.page
 <img width="216" height="196" alt="pony-town-# _🎧_ グーバー ‼⁉ - BOOMBOX!!1 😾-dance-lie-blinking-padded-4x" src="https://github.com/user-attachments/assets/9a25b2ea-685a-4ef2-8bf1-70054004c05b" />
 <img width="216" height="220" alt="pony-town-# _🐺⚡_ ‼⁉ ファイター - COIL!!1 🐾-dance-lie-blinking-padded-toy198-4x" src="https://github.com/user-attachments/assets/da4e4a92-e759-4bd3-ba0a-235c11c5e8e4" /> 
 
+<img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
+
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=10&pause=1000&color=F70878&center=true&vCenter=true&width=435&lines=%22Why+don't+you+come+play+with+me+and+take+me+to+the+other+side%3F%22)](https://git.io/typing-svg)
+
+<img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
 
 <img width="2048" height="2048" alt="tumblr_a8d63d71546d79ff693d4ec557b1aacc_dc7bbac3_2048" src="https://github.com/user-attachments/assets/71cc6875-2fef-49e8-8730-9fa1fbe494cd" />
 
 <img width="2047" height="817" alt="tumblr_002cc620f75692e891c9ab20b8fa871d_bee11098_2048" src="https://github.com/user-attachments/assets/8abcf137-368f-499e-bd2b-b957a54fd1d9" /> 
 <img width="1280" height="511" alt="tumblr_5e9be6cf190dbea3b80731cf356e8993_751d2c0c_1280" src="https://github.com/user-attachments/assets/132578b9-b8c2-4ee7-970a-99aca25349c8" />
 <img width="2048" height="805" alt="tumblr_32627a53c24e51b93bb695ca2be6c3d2_53734cd1_2048" src="https://github.com/user-attachments/assets/86abe660-a2a5-4916-bfe3-0495d61c1171" /> 
+
+<img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
 
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F75301&center=true&vCenter=true&width=435&lines=SPOKE+IS+HERE!!1)](https://git.io/typing-svg)
@@ -102,11 +120,13 @@ https://scarriotzz1x4.straw.page
 <img width="600" height="80" alt="tumblr_e3915d8ea18805a4fb68827976cf73ac_913032ff_640" src="https://github.com/user-attachments/assets/e8fdf64f-8c1d-49c2-9f4e-a74caaba0876" />
 <img width="600" height="80" alt="tumblr_e7d69b4774d190f3f19cfbbf43b8ab68_1aca2cb8_640" src="https://github.com/user-attachments/assets/7b06e2ac-246a-4a71-8f82-a53946328f5c" />  
 
+<img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
+
 <img width="99" height="100" alt="spoke-spokeishere" src="https://github.com/user-attachments/assets/5b4236a1-a4cb-4575-b2e1-2a0c2be7f843" />![Static Badge](https://img.shields.io/badge/I'M%20A%20HEAVY%20SPOKE%20FICTIONKIN%20NOW!!-red)
 ![Static Badge](https://img.shields.io/badge/Spoke%20Fictionkin-yellow)
 ![Static Badge](https://img.shields.io/badge/Spoke%20MY%20BELOVED-green)![Static Badge](https://img.shields.io/badge/Spoke%20MY%20SILLY%20FAVORITE%20GOOBER-cyan)![Static Badge](https://img.shields.io/badge/Spoke..-blue)![Static Badge](https://img.shields.io/badge/THE%20SILLY%20ASS%20RAINBOW%20GOOBER%20STRIKES%20DOWN-purple)
 
-
+<img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
 
 <img width="800" height="838" alt="tumblr_ffad43fd885dd9f5603d1e5c47be78c1_b9f54aff_1280" src="https://github.com/user-attachments/assets/48459e5e-608d-4e2a-a86f-b81dc8fe0343" />
 
@@ -124,6 +144,7 @@ https://scarriotzz1x4.straw.page
 
 ![Static Badge](https://img.shields.io/badge/HELLO%2C%20WELCOME%20TO%20MY%20GITHUB%20PAGE%20THIS%20IS%20ONLY%20FOR%20THE%20PONY%20TOWN%20GAME%20SAYING%20IT%20AGAIN%20I%20DONT%20DO%20JOBS%20IM%20A%20MINOR.-yellow) 
 
+<img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
 
 <img width="735" height="400" alt="tumblr_d96406df48b1874bbe05f62079173cf1_273965d9_640" src="https://github.com/user-attachments/assets/00721ec0-dbce-4578-a4e9-109c12a865e4" />
 
