@@ -265,9 +265,9 @@ https://scarriotzz1x4.straw.page
 <img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/abc17c2e-39cd-4c36-b978-63c2e0d1c5fe" /> 
 <img width="350" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
 
-丂乂卂尺乂丨尺丨乇 !!1 ᵁᴿ ᴸᴼᶜᴬᴸ ᴾᵁᴺᴷ/ᴹᴱᵀᴬᴸ ᴱᴺᴶᴼʸᴱᴿ
+丂乂卂尺乂丨尺丨乇 !!1 ᵁᴿ ᴸᴼᶜᴬᴸ ᴾᵁᴺᴷ/ᴹᴱᵀᴬᴸ ᴱᴺᴶᴼʸᴱᴿ  
 
-YOUR CERTIFIED PUNK MUSIC AND METALHEAD ENJOYER‼️💢
+𝙔𝙊𝙐𝙍 𝘾𝙀𝙍𝙏𝙄𝙁𝙄𝙀𝘿 𝙋𝙐𝙉𝙆 𝙈𝙐𝙎𝙄𝘾 𝘼𝙉𝘿 𝙈𝙀𝙏𝘼𝙇𝙃𝙀𝘼𝘿 𝙀𝙉𝙅𝙊𝙔𝙀𝙍‼️💢  
 
 ☢️ •‼️⛓️𓊈𝐂𝐄𝐑𝐓𝐈𝐅𝐈𝐄𝐃!!1 𝐏𝐇𝐈𝐒𝐍𝐎𝐌 𝐖𝐀𝐓𝐂𝐇𝐄𝐑𓊉⛓️
 <img width="350" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
@@ -292,11 +292,9 @@ YOUR CERTIFIED PUNK MUSIC AND METALHEAD ENJOYER‼️💢
 
 <img width="400" height="225" alt="zenless-zenless-zone-zero" src="https://github.com/user-attachments/assets/8b61039e-f283-44a9-815b-1f5683298088" />
 
-Hi I'm SCAR / RIOT / COZMO, miles, edge, miller, arachna I have so many names call me whatever you want or burak bcz I'm from turkiye 
-
-ENTP | current comfort fandoms; ultrakill, undertale/deltarune, psychopomp, crk, sally face, murder drones, tadc | Gamzee Makara, Bluudud, C00lkidd, Pr3typriincess, Guita, Rudo, Frisk, Chara are my fictional children
-
-multifandomer + autistic + has adhd + he/him/all/she/her/they/them/xe/xem/xyr + aroace (aromantic asexual)
+𝙃𝙞 𝙄'𝙢 𝙎𝘾𝘼𝙍 / 𝙍𝙄𝙊𝙏 / 𝘾𝙊𝙕𝙈𝙊, 𝙢𝙞𝙡𝙚𝙨, 𝙚𝙙𝙜𝙚, 𝙢𝙞𝙡𝙡𝙚𝙧, 𝙖𝙧𝙖𝙘𝙝𝙣𝙖 𝙄 𝙝𝙖𝙫𝙚 𝙨𝙤 𝙢𝙖𝙣𝙮 𝙣𝙖𝙢𝙚𝙨 𝙘𝙖𝙡𝙡 𝙢𝙚 𝙬𝙝𝙖𝙩𝙚𝙫𝙚𝙧 𝙮𝙤𝙪 𝙬𝙖𝙣𝙩 𝙤𝙧 𝙗𝙪𝙧𝙖𝙠 𝙗𝙘𝙯 𝙄'𝙢 𝙛𝙧𝙤𝙢 𝙩𝙪𝙧𝙠𝙞𝙮𝙚  
+𝙀𝙉𝙏𝙋 | 𝙘𝙪𝙧𝙧𝙚𝙣𝙩 𝙘𝙤𝙢𝙛𝙤𝙧𝙩 𝙛𝙖𝙣𝙙𝙤𝙢𝙨; 𝙪𝙡𝙩𝙧𝙖𝙠𝙞𝙡𝙡, 𝙪𝙣𝙙𝙚𝙧𝙩𝙖𝙡𝙚/𝙙𝙚𝙡𝙩𝙖𝙧𝙪𝙣𝙚, 𝙥𝙨𝙮𝙘𝙝𝙤𝙥𝙤𝙢𝙥, 𝙘𝙧𝙠, 𝙨𝙖𝙡𝙡𝙮 𝙛𝙖𝙘𝙚, 𝙢𝙪𝙧𝙙𝙚𝙧 𝙙𝙧𝙤𝙣𝙚𝙨, 𝙩𝙖𝙙𝙘 | 𝙂𝙖𝙢𝙯𝙚𝙚 𝙈𝙖𝙠𝙖𝙧𝙖, 𝘽𝙡𝙪𝙪𝙙𝙪𝙙, 𝘾00𝙡𝙠𝙞𝙙𝙙, 𝙋𝙧3𝙩𝙮𝙥𝙧𝙞𝙞𝙣𝙘𝙚𝙨𝙨, 𝙂𝙪𝙞𝙩𝙖, 𝙍𝙪𝙙𝙤, 𝙁𝙧𝙞𝙨𝙠, 𝘾𝙝𝙖𝙧𝙖 𝙖𝙧𝙚 𝙢𝙮 𝙛𝙞𝙘𝙩𝙞𝙤𝙣𝙖𝙡 𝙘𝙝𝙞𝙡𝙙𝙧𝙚𝙣  
+𝙢𝙪𝙡𝙩𝙞𝙛𝙖𝙣𝙙𝙤𝙢𝙚𝙧 + 𝙖𝙪𝙩𝙞𝙨𝙩𝙞𝙘 + 𝙝𝙖𝙨 𝙖𝙙𝙝𝙙 + 𝙝𝙚/𝙝𝙞𝙢/𝙖𝙡𝙡/𝙨𝙝𝙚/𝙝𝙚𝙧/𝙩𝙝𝙚𝙮/𝙩𝙝𝙚𝙢/𝙭𝙚/𝙭𝙚𝙢/𝙭𝙮𝙧 + 𝙖𝙧𝙤𝙖𝙘𝙚 (𝙖𝙧𝙤𝙢𝙖𝙣𝙩𝙞𝙘 𝙖𝙨𝙚𝙭𝙪𝙖𝙡)
 
 <img width="1025" height="604" alt="tumblr_98d551e7d585eabfa93243b073b0a0dd_7610a92e_1280" src="https://github.com/user-attachments/assets/347dfcfb-4e4b-440c-a0f2-bbd39c2c4516" />
 <img width="698" height="689" alt="tumblr_9fa83d4b86752b01528c7edafb1c3184_91dd2055_1280" src="https://github.com/user-attachments/assets/b2b569d0-d997-461a-90e5-78021b4c7ac6" />
@@ -318,16 +316,15 @@ multifandomer + autistic + has adhd + he/him/all/she/her/they/them/xe/xem/xyr + 
 <img width="350" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
 <img width="1320" height="100" alt="image" src="https://github.com/user-attachments/assets/da5cf577-91f1-4463-b2d9-26cca4f9e42e" />
 
-Likes; gaming, listening music, speaking with da gang, my own tazmanian devil plush, cats, metal/heavy metal/black metal/gore metal, punk, rock, hyperpop, nightcore, indie game osts, snythwave, frutiger aero, skating, basketball, playing guitar(I'll have it soon)
-
-Dislikes; dogs, insects(all of them),bullying
-
-Dni; if you're zionist, ableist, bigot, pedophile, zoophile, homophobic, transphobic, groomer, rapist, SA DOER, racist, dark/com/pro shipper.
+𝙇𝙞𝙠𝙚𝙨; 𝙜𝙖𝙢𝙞𝙣𝙜, 𝙡𝙞𝙨𝙩𝙚𝙣𝙞𝙣𝙜 𝙢𝙪𝙨𝙞𝙘, 𝙨𝙥𝙚𝙖𝙠𝙞𝙣𝙜 𝙬𝙞𝙩𝙝 𝙙𝙖 𝙜𝙖𝙣𝙜, 𝙢𝙮 𝙤𝙬𝙣 𝙩𝙖𝙯𝙢𝙖𝙣𝙞𝙖𝙣 𝙙𝙚𝙫𝙞𝙡 𝙥𝙡𝙪𝙨𝙝, 𝙘𝙖𝙩𝙨, 𝙢𝙚𝙩𝙖𝙡/𝙝𝙚𝙖𝙫𝙮 𝙢𝙚𝙩𝙖𝙡/𝙗𝙡𝙖𝙘𝙠 𝙢𝙚𝙩𝙖𝙡/𝙜𝙤𝙧𝙚 𝙢𝙚𝙩𝙖𝙡, 𝙥𝙪𝙣𝙠, 𝙧𝙤𝙘𝙠, 𝙝𝙮𝙥𝙚𝙧𝙥𝙤𝙥, 𝙣𝙞𝙜𝙝𝙩𝙘𝙤𝙧𝙚, 𝙞𝙣𝙙𝙞𝙚 𝙜𝙖𝙢𝙚 𝙤𝙨𝙩𝙨, 𝙨𝙣𝙮𝙩𝙝𝙬𝙖𝙫𝙚, 𝙛𝙧𝙪𝙩𝙞𝙜𝙚𝙧 𝙖𝙚𝙧𝙤, 𝙨𝙠𝙖𝙩𝙞𝙣𝙜, 𝙗𝙖𝙨𝙠𝙚𝙩𝙗𝙖𝙡𝙡, 𝙥𝙡𝙖𝙮𝙞𝙣𝙜 𝙜𝙪𝙞𝙩𝙖𝙧(𝙄'𝙡𝙡 𝙝𝙖𝙫𝙚 𝙞𝙩 𝙨𝙤𝙤𝙣)  
+𝘿𝙞𝙨𝙡𝙞𝙠𝙚𝙨; 𝙙𝙤𝙜𝙨, 𝙞𝙣𝙨𝙚𝙘𝙩𝙨(𝙖𝙡𝙡 𝙤𝙛 𝙩𝙝𝙚𝙢),𝙗𝙪𝙡𝙡𝙮𝙞𝙣𝙜  
+𝘿𝙣𝙞; 𝙞𝙛 𝙮𝙤𝙪'𝙧𝙚 𝙯𝙞𝙤𝙣𝙞𝙨𝙩, 𝙖𝙗𝙡𝙚𝙞𝙨𝙩, 𝙗𝙞𝙜𝙤𝙩, 𝙥𝙚𝙙𝙤𝙥𝙝𝙞𝙡𝙚, 𝙯𝙤𝙤𝙥𝙝𝙞𝙡𝙚, 𝙝𝙤𝙢𝙤𝙥𝙝𝙤𝙗𝙞𝙘, 𝙩𝙧𝙖𝙣𝙨𝙥𝙝𝙤𝙗𝙞𝙘, 𝙜𝙧𝙤𝙤𝙢𝙚𝙧, 𝙧𝙖𝙥𝙞𝙨𝙩, 𝙎𝘼 𝘿𝙊𝙀𝙍, 𝙧𝙖𝙘𝙞𝙨𝙩, 𝙙𝙖𝙧𝙠/𝙘𝙤𝙢/𝙥𝙧𝙤 𝙨𝙝𝙞𝙥𝙥𝙚𝙧.
 
 <img width="350" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
 <img width="1137" height="100" alt="image" src="https://github.com/user-attachments/assets/4411ad4a-4a8e-4bc8-81b9-c38dc8a71d20" />
 
-Fandoms; undertale/deltarune, Forsaken, Regretevator, Phighthing, Friday Night Funkin, Brawl Stars, Five Nights at Freddy's, Cuphead, Mario, Sonic The Hedgehog, Solarballs and etc, (there's more but I cant write allat) (you can speak to me extras in dms)
+𝙁𝙖𝙣𝙙𝙤𝙢𝙨; 𝙐𝙣𝙙𝙚𝙧𝙩𝙖𝙡𝙚/𝘿𝙚𝙡𝙩𝙖𝙧𝙪𝙣𝙚, 𝙐𝙣𝙙𝙚𝙧𝙩𝙖𝙡𝙚 𝙔𝙚𝙡𝙡𝙤𝙬, 𝙁𝙧𝙞𝙙𝙖𝙮 𝙉𝙞𝙜𝙝𝙩 𝙁𝙪𝙣𝙠𝙞𝙣, 𝘽𝙧𝙖𝙬𝙡 𝙎𝙩𝙖𝙧𝙨, 𝙁𝙞𝙫𝙚 𝙉𝙞𝙜𝙝𝙩𝙨 𝙖𝙩 𝙁𝙧𝙚𝙙𝙙𝙮'𝙨, 𝙒𝙖𝙡𝙩𝙚𝙣 𝙁𝙞𝙡𝙚𝙨, 𝙎𝙩𝙧𝙖𝙮, 𝙂𝙡𝙞𝙩𝙘𝙝 𝙏𝙚𝙘𝙝𝙨, 𝙏𝙝𝙚 𝙇𝙖𝙨𝙩 𝙆𝙞𝙙𝙨 𝙤𝙣 𝙀𝙖𝙧𝙩𝙝, 𝙎𝙝𝙚-𝙍𝙖 𝙖𝙣𝙙 𝙏𝙝𝙚 𝙋𝙧𝙞𝙣𝙘𝙚𝙨𝙨𝙚𝙨 𝙤𝙛 𝙋𝙤𝙬𝙚𝙧, 𝙆𝙄𝙋𝙊 𝙖𝙣𝙙 𝙏𝙝𝙚 𝘼𝙜𝙚 𝙤𝙛 𝙒𝙤𝙣𝙙𝙚𝙧𝙗𝙚𝙖𝙨𝙩𝙨, 𝙊𝙙𝙙𝙗𝙖𝙡𝙡𝙨, 𝙍𝙞𝙘𝙠 𝙖𝙣𝙙 𝙈𝙤𝙧𝙩𝙮, 𝘽𝙖𝙩𝙩𝙡𝙚 𝙛𝙤𝙧 𝘿𝙧𝙚𝙖𝙢 𝙄𝙨𝙡𝙖𝙣𝙙, 𝙏𝙝𝙚 𝙋𝙤𝙬𝙚𝙧 𝙤𝙛 𝙏𝙬𝙤, 𝘾𝙪𝙥𝙝𝙚𝙖𝙙, 𝙈𝙖𝙧𝙞𝙤, 𝙎𝙤𝙣𝙞𝙘 𝙏𝙝𝙚 𝙃𝙚𝙙𝙜𝙚𝙝𝙤𝙜, 𝙎𝙤𝙡𝙖𝙧𝙗𝙖𝙡𝙡𝙨, 𝙎𝙤𝙡𝙖𝙧𝙝𝙪𝙢𝙖𝙣𝙨, 𝙋𝙡𝙖𝙣𝙚𝙩𝙝𝙪𝙢𝙖𝙣𝙨, 𝘾𝙤𝙪𝙣𝙩𝙧𝙮𝙗𝙖𝙡𝙡𝙨, 𝘾𝙤𝙪𝙣𝙩𝙧𝙮𝙝𝙪𝙢𝙖𝙣𝙨, 𝘼𝙡𝙞𝙚𝙣 𝙎𝙩𝙖𝙜𝙚, 𝘽𝙤𝙢𝙗 𝙍𝙪𝙨𝙝 𝘾𝙮𝙗𝙚𝙧𝙛𝙪𝙣𝙠, 𝘿𝙞𝙜𝙞𝙩𝙖𝙡 𝘾𝙞𝙧𝙘𝙪𝙨, 𝙈𝙪𝙧𝙙𝙚𝙧 𝘿𝙧𝙤𝙣𝙚𝙨, 𝙐𝙡𝙩𝙧𝙖𝙠𝙞𝙡𝙡, 𝘽𝙚𝙧𝙨𝙚𝙧𝙠, 𝙅𝙤𝙅𝙤, 𝙃𝙖𝙯𝙗𝙞𝙣 𝙃𝙤𝙩𝙚𝙡, 𝙃𝙚𝙡𝙡𝙪𝙫𝙖 𝘽𝙤𝙨𝙨, 𝙂𝙧𝙖𝙘𝙚, 𝘼𝙣𝙞𝙢𝙖𝙡 𝙃𝙤𝙨𝙥𝙞𝙩𝙖𝙡, 𝙋𝙧𝙚𝙨𝙨𝙪𝙧𝙚, 𝙋𝙝𝙞𝙜𝙝𝙩𝙞𝙣𝙜, 𝙍𝙚𝙜𝙧𝙚𝙩𝙚𝙫𝙖𝙩𝙤𝙧, 𝙁𝙊𝙍𝙎𝘼𝙆𝙀𝙉, 𝙏𝙍𝙐𝘿, 𝙄𝙉𝘿𝙄𝙀 𝘾𝙍𝙊𝙎𝙎, 𝙏𝙚𝙧𝙢𝙞𝙣𝙖𝙩𝙞𝙤𝙣 𝙋𝙧𝙤𝙩𝙤𝙘𝙤𝙡, 𝙍𝙤𝙗𝙡𝙤𝙭 𝙃𝙖𝙘𝙠𝙚𝙧𝙨/𝘼𝙙𝙢𝙞𝙣𝙨/𝙈𝙮𝙩𝙝𝙨, 𝙃𝙤𝙢𝙚𝙨𝙩𝙪𝙘𝙠, 𝙕𝙚𝙣𝙡𝙚𝙨𝙨 𝙕𝙤𝙣𝙚 𝙕𝙚𝙧𝙤, 𝙒𝙪𝙩𝙝𝙚𝙧𝙞𝙣𝙜 𝙒𝙖𝙫𝙚𝙨, 𝙂𝙚𝙣𝙨𝙝𝙞𝙣/𝙃𝙤𝙣𝙠𝙖𝙞 𝙞𝙢𝙥𝙖𝙘𝙩, 𝙃𝙤𝙣𝙠𝙖𝙞 𝙎𝙩𝙖𝙧 𝙍𝙖𝙞𝙡, 𝘼𝙧𝙠𝙣𝙞𝙜𝙝𝙩𝙨, 𝘼𝙧𝙠𝙣𝙞𝙜𝙝𝙩𝙨 𝙀𝙣𝙙𝙛𝙞𝙚𝙡𝙙, 𝙃𝙤𝙡𝙡𝙤𝙬 𝙆𝙣𝙞𝙜𝙝𝙩, 𝙃𝙤𝙡𝙡𝙤𝙬 𝙆𝙣𝙞𝙜𝙝𝙩: 𝙎𝙞𝙡𝙠𝙨𝙤𝙣𝙜, 𝙆𝙖𝙩𝙖𝙣𝙖 𝙕𝙚𝙧𝙤, 𝙃𝙤𝙩𝙡𝙞𝙣𝙚 𝙈𝙞𝙖𝙢𝙞, 𝙎𝘼𝙉𝙎 𝘼𝙐𝙎/𝘼𝙏𝙎, 𝙐𝙣𝙙𝙚𝙧𝙫𝙚𝙧𝙨𝙚, 𝙋𝙤𝙨𝙩𝙖𝙡, 𝘿𝙊𝙊𝙈, 𝙃𝘼𝙇𝙊, 𝙏𝙧𝙖𝙣𝙨𝙛𝙤𝙧𝙢𝙚𝙧𝙨, 𝙏𝙤𝙪𝙝𝙤𝙪 𝙋𝙧𝙤𝙟𝙚𝙘𝙩, 𝙃𝙚𝙡𝙡𝙩𝙖𝙠𝙚𝙧, 𝘼𝙬𝙖𝙧𝙞𝙖, 𝙎𝙖𝙡𝙡𝙮 𝙁𝙖𝙘𝙚, 𝙇𝙞𝙩𝙩𝙡𝙚 𝙉𝙞𝙜𝙝𝙩𝙢𝙖𝙧𝙚𝙨, 𝘾𝙝𝙖𝙞𝙣𝙨𝙖𝙬 𝙈𝙖𝙣, 𝙂𝙖𝙘𝙝𝙞𝙖𝙠𝙪𝙩𝙖, 𝘾𝙧𝙚𝙚𝙥𝙮𝙋𝙖𝙨𝙩𝙖, 𝙎𝙤𝙣𝙞𝙘.𝙀𝙓𝙀, 𝙈𝙖𝙧𝙞𝙤.𝙀𝙓𝙀, 𝙋𝙞𝙯𝙯𝙖 𝙏𝙤𝙬𝙚𝙧, 𝘼𝙣𝙩𝙤𝙣 𝘽𝙡𝙖𝙨𝙩, 𝙎𝙡𝙞𝙢𝙚 𝙍𝙖𝙣𝙘𝙝𝙚𝙧, 𝘿𝙊𝙆𝙄 𝘿𝙊𝙆𝙄 𝙇𝙞𝙩𝙚𝙧𝙖𝙩𝙪𝙧𝙚 𝘾𝙡𝙪𝙗, 𝙂𝙊𝘿𝙕𝙄𝙇𝙇𝘼 - 𝙈𝙊𝙉𝙎𝙏𝙀𝙍𝙑𝙀𝙍𝙎𝙀, 𝙋𝙨𝙮𝙘𝙝𝙤𝙥𝙤𝙢𝙥, 𝙎𝙤𝙪𝙩𝙝 𝙋𝙖𝙧𝙠, 𝘽𝙚𝙣𝙙𝙮 𝙖𝙣𝙙 𝙏𝙝𝙚 𝙄𝙣𝙠 𝙈𝙖𝙘𝙝𝙞𝙣𝙚, 𝙀𝙉𝘼 𝘿𝙍𝙀𝘼𝙈 𝘽𝘽𝙌, 𝙐𝙣𝙨𝙩𝙖𝙗𝙡𝙚 𝙎𝙈𝙋, 𝙇𝙞𝙛𝙚𝙨𝙩𝙚𝙖𝙡 𝙎𝙈𝙋, 𝙌𝙎𝙈𝙋, 𝙆𝙖𝙗𝙤𝙤𝙙𝙡𝙚 𝙎𝙈𝙋, 𝙈𝙖𝙙𝙣𝙚𝙨𝙨 𝘾𝙤𝙢𝙗𝙖𝙩
+
 <img width="2048" height="2048" alt="image" src="https://github.com/user-attachments/assets/3caef925-70b0-4bd8-9132-f63515240ebb" />
 <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/65e601dd-c0c9-4672-8e9b-e2bc821d8d5d" />
 <img width="1414" height="1414" alt="image" src="https://github.com/user-attachments/assets/6c59b4e6-c12b-4d9e-9510-2860bdbc0898" />
