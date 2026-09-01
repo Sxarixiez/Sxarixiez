@@ -1,5 +1,7 @@
 <img width="1280" height="511" alt="tumblr_d5cb795a50f03968757ff8024cbd69bb_891909f1_1280" src="https://github.com/user-attachments/assets/6997be1b-fcf3-4784-b059-e17f661c6a46" /> 
 
+<img width="1280" height="720" alt="tumblr_95c9bf94e99530170b5ad741cd24b316_1f518497_1280" src="https://github.com/user-attachments/assets/9c844d24-d313-4009-ba8a-97418df1ce40" />
+
 # THE BIGGEST MULTIFANDOMER YOU've EVER SEEN hi IM SPOKE IRL ‼️‼️‼️🍕🧪
 
 <img width="498" height="281" alt="neptune-solarballs" src="https://github.com/user-attachments/assets/6d8710d1-4416-4d8b-b8fc-fdc247461ac2" />
