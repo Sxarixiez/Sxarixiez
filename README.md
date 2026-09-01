@@ -362,7 +362,7 @@ https://scarriotzz1x4.straw.page
 
 <img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
 
-# I love this guy AND THE RAT WOMAN so much okay I dont know what to add here more
+# ɪ ʟᴏᴠᴇ ᴛʜɪꜱ ɢᴜʏ ᴀɴᴅ ᴛʜᴇ ʀᴀᴛ ᴡᴏᴍᴀɴ ꜱᴏ ᴍᴜᴄʜ ᴏᴋᴀʏ ɪ ᴅᴏɴᴛ ᴋɴᴏᴡ ᴡʜᴀᴛ ᴛᴏ ᴀᴅᴅ ʜᴇʀᴇ ᴍᴏʀᴇ
 <img width="736" height="981" alt="subby meowewwewwwww" src="https://github.com/user-attachments/assets/3937d4f9-63b2-4e84-a49c-f110999e8030" />
 <img width="736" height="736" alt="indir - 2026-09-01T090349 335" src="https://github.com/user-attachments/assets/127a00a4-7b2b-4524-93dd-6f92d7230584" />
 
