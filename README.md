@@ -7,7 +7,9 @@
 <img width="1500" height="500" alt="tumblr_9e66e4a5ff151be72ec96287638cca49_b5861e49_2048" src="https://github.com/user-attachments/assets/1e72528e-d714-4335-9c23-8e3a2cd43562" />
 
 <img width="960" height="540" alt="tumblr_4221e42865bbaab0a7336d7d561835cf_56d000af_1280" src="https://github.com/user-attachments/assets/0ab5d33d-dc2f-4038-b60c-295211e9e9c1" />
-
+<img width="150" height="20" alt="tumblr_f25e8c8f9634a5cc987ace8bdb785b14_5cb7fd8a_250" src="https://github.com/user-attachments/assets/cf93f702-6b24-43d1-8e20-efc1f7e75c7b" />
+<img width="150" height="20" alt="tumblr_f1ff9718f9a3e13f44952f7f04757a65_8b6a6703_250" src="https://github.com/user-attachments/assets/db97db88-1876-4261-bfee-a9925dd586aa" />
+<img width="498" height="65" alt="neurodivergent-autism" src="https://github.com/user-attachments/assets/e6a8e3e4-57f9-43dc-87d7-d2f8a94cf960" />
 <img width="498" height="281" alt="neptune-solarballs" src="https://github.com/user-attachments/assets/6d8710d1-4416-4d8b-b8fc-fdc247461ac2" />
 
 ![Static Badge](https://img.shields.io/badge/scar!!-red)![Static Badge](https://img.shields.io/badge/SPOKE%20%26%20SUBSPACE%20FICTIONKIN-red)
