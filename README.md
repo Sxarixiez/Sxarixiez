@@ -25,6 +25,7 @@
 <img width="150" height="20" alt="blinkie-scout-tf2" src="https://github.com/user-attachments/assets/eea5513e-56f8-469c-bb55-54a802d9c51f" />
 <img width="150" height="20" alt="dropped-head" src="https://github.com/user-attachments/assets/ad3c0983-8206-44c5-91b5-7727b1e597dd" /><img width="150" height="20" alt="blue-blinkie" src="https://github.com/user-attachments/assets/bdb7b426-f160-4851-b55e-1d8c2d0b53ff" /><img width="150" height="20" alt="blinkie-my-chemical-romance" src="https://github.com/user-attachments/assets/606798f6-6bdb-43df-9e11-a2ad9a01452f" />
 
+<img width="498" height="190" alt="mankind-is-dead-blood-is-fuel" src="https://github.com/user-attachments/assets/3979ced1-544b-43e5-ada3-89d80e0b291d" />
 <img width="498" height="281" alt="neptune-solarballs" src="https://github.com/user-attachments/assets/6d8710d1-4416-4d8b-b8fc-fdc247461ac2" />
 
 ![Static Badge](https://img.shields.io/badge/scar!!-red)![Static Badge](https://img.shields.io/badge/SPOKE%20%26%20SUBSPACE%20FICTIONKIN-red)
