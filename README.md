@@ -367,7 +367,9 @@ https://scarriotzz1x4.straw.page
 <img width="736" height="736" alt="indir - 2026-09-01T090349 335" src="https://github.com/user-attachments/assets/127a00a4-7b2b-4524-93dd-6f92d7230584" />
 
 <img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
-# 𝙈𝙔 𝙁𝙄𝘾𝙏𝙄𝙊𝙉𝘼𝙇 𝙒𝙄𝙁𝙀 𝘽𝙏𝙒 :3 
+
+# ᴍʏ ꜰɪᴄᴛɪᴏɴᴀʟ ᴡɪꜰᴇ ʙᴛᴡ :3 
+
 <img width="498" height="498" alt="zenless-zone-zero-zzz" src="https://github.com/user-attachments/assets/e16491cd-52f0-4684-9e7b-888dc9fb949d" />
 
 <img width="395" height="498" alt="jane-doe-zzz-zenless-zone-zero" src="https://github.com/user-attachments/assets/eb9be32d-ca1e-4709-9717-4a01a3eb79b6" /><img width="220" height="292" alt="jane-doe-jane-doe-zzz" src="https://github.com/user-attachments/assets/b3d50665-d928-4add-b39b-1f79daaa4d7d" />
