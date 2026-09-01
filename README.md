@@ -349,8 +349,9 @@ https://scarriotzz1x4.straw.page
 <img width="1533" height="576" alt="Ekran görüntüsü 2026-07-19 080142" src="https://github.com/user-attachments/assets/6d970ba7-b5ff-4326-9d62-1cac9b284aed" /> 
 <img width="622" height="163" alt="Ekran görüntüsü 2026-07-10 160737" src="https://github.com/user-attachments/assets/5d303d26-4f1d-4f70-bfdf-cfb83c44452e" />
 
-# I love this guy so much okay I dont know what to add here more
+# I love this guy AND THE RAT WOMAN so much okay I dont know what to add here more
 <img width="736" height="981" alt="subby meowewwewwwww" src="https://github.com/user-attachments/assets/3937d4f9-63b2-4e84-a49c-f110999e8030" />
+<img width="736" height="736" alt="indir - 2026-09-01T090349 335" src="https://github.com/user-attachments/assets/127a00a4-7b2b-4524-93dd-6f92d7230584" />
 
 <img width="458" height="498" alt="spokeishere-spoke-is-here" src="https://github.com/user-attachments/assets/3c8db863-a58a-45e7-a9ee-1c56d3c32039" /> 
 
