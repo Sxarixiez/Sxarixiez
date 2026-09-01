@@ -4,6 +4,8 @@
 
 # THE BIGGEST MULTIFANDOMER YOU've EVER SEEN hi IM SPOKE IRL ‼️‼️‼️🍕🧪
 
+<img width="1500" height="500" alt="tumblr_9e66e4a5ff151be72ec96287638cca49_b5861e49_2048" src="https://github.com/user-attachments/assets/1e72528e-d714-4335-9c23-8e3a2cd43562" />
+
 <img width="498" height="281" alt="neptune-solarballs" src="https://github.com/user-attachments/assets/6d8710d1-4416-4d8b-b8fc-fdc247461ac2" />
 
 ![Static Badge](https://img.shields.io/badge/scar!!-red)![Static Badge](https://img.shields.io/badge/SPOKE%20%26%20SUBSPACE%20FICTIONKIN-red)
