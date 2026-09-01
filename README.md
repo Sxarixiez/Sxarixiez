@@ -372,7 +372,7 @@ https://scarriotzz1x4.straw.page
 
 <img width="498" height="498" alt="zenless-zone-zero-zzz" src="https://github.com/user-attachments/assets/e16491cd-52f0-4684-9e7b-888dc9fb949d" />
 
-<img width="395" height="498" alt="jane-doe-zzz-zenless-zone-zero" src="https://github.com/user-attachments/assets/eb9be32d-ca1e-4709-9717-4a01a3eb79b6" /><img width="220" height="292" alt="jane-doe-jane-doe-zzz" src="https://github.com/user-attachments/assets/b3d50665-d928-4add-b39b-1f79daaa4d7d" />
+<img width="395" height="498" alt="jane-doe-zzz-zenless-zone-zero" src="https://github.com/user-attachments/assets/eb9be32d-ca1e-4709-9717-4a01a3eb79b6" />
 <img width="498" height="498" alt="jane-doe-zenless-zone-zero (1)" src="https://github.com/user-attachments/assets/8c1ab3af-e8b2-43ca-a3a7-e0595987d51e" />
 <img width="498" height="498" alt="jane-doe-zenless-zone-zero" src="https://github.com/user-attachments/assets/7ab7056d-0fdf-4868-b711-3186909db220" />
 <img width="498" height="390" alt="jane-doe-zenless-zone-zero (2)" src="https://github.com/user-attachments/assets/115284d9-9baf-4e60-b6a0-196623a6cd9a" />
