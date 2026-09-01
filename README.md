@@ -290,7 +290,9 @@ YOUR CERTIFIED PUNK MUSIC AND METALHEAD ENJOYER‼️💢
 
 <img width="735" height="427" alt="image" src="https://github.com/user-attachments/assets/ce6c959f-ec68-4318-ba65-28dffedecd88" />
 
-Hi I'm icry, miles, edge, miller, cosmo, arachna I have so many names call me whatever you want or burak bcz I'm from turkiye 
+<img width="400" height="225" alt="zenless-zenless-zone-zero" src="https://github.com/user-attachments/assets/8b61039e-f283-44a9-815b-1f5683298088" />
+
+Hi I'm SCAR / RIOT / COZMO, miles, edge, miller, arachna I have so many names call me whatever you want or burak bcz I'm from turkiye 
 
 ENTP | current comfort fandoms; ultrakill, undertale/deltarune, psychopomp, crk, sally face, murder drones, tadc | Gamzee Makara, Bluudud, C00lkidd, Pr3typriincess, Guita, Rudo, Frisk, Chara are my fictional children
 
