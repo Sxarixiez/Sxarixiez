@@ -24,11 +24,6 @@
 <img width="150" height="20" alt="cyberpunk-2077-blinkie-blinkies" src="https://github.com/user-attachments/assets/1a6db90d-530e-4a7c-ad3c-bb4491d659bb" />
 <img width="150" height="20" alt="blinkie-scout-tf2" src="https://github.com/user-attachments/assets/eea5513e-56f8-469c-bb55-54a802d9c51f" />
 <img width="150" height="20" alt="dropped-head" src="https://github.com/user-attachments/assets/ad3c0983-8206-44c5-91b5-7727b1e597dd" /><img width="150" height="20" alt="blue-blinkie" src="https://github.com/user-attachments/assets/bdb7b426-f160-4851-b55e-1d8c2d0b53ff" /><img width="150" height="20" alt="blinkie-my-chemical-romance" src="https://github.com/user-attachments/assets/606798f6-6bdb-43df-9e11-a2ad9a01452f" />
-<img width="498" height="65" alt="pixel-blinkie" src="https://github.com/user-attachments/assets/4a802eba-a5cc-4bce-a132-9f6449ff02c1" />
-<img width="498" height="65" alt="nightcore-rainbow" src="https://github.com/user-attachments/assets/9b71704f-4fcc-4598-a689-8f95737abdd9" />
-<img width="446" height="60" alt="blinkie-saiki-k" src="https://github.com/user-attachments/assets/9827541e-eaab-4c9c-aa0a-91111cc4abc5" /><img width="446" height="60" alt="blinkie-blinkies (3)" src="https://github.com/user-attachments/assets/10a02bf6-550a-4a43-a16a-ce63c811b992" />
-<img width="498" height="65" alt="invader-zim-zim" src="https://github.com/user-attachments/assets/76121a1e-2bfc-4205-bf5a-3b28405f91bb" />
-<img width="498" height="65" alt="neurodivergent-autism" src="https://github.com/user-attachments/assets/e6a8e3e4-57f9-43dc-87d7-d2f8a94cf960" />
 
 <img width="498" height="281" alt="neptune-solarballs" src="https://github.com/user-attachments/assets/6d8710d1-4416-4d8b-b8fc-fdc247461ac2" />
 
