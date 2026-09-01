@@ -111,8 +111,6 @@ https://scarriotzz1x4.straw.page
 <img width="1280" height="511" alt="tumblr_5e9be6cf190dbea3b80731cf356e8993_751d2c0c_1280" src="https://github.com/user-attachments/assets/132578b9-b8c2-4ee7-970a-99aca25349c8" />
 <img width="2048" height="805" alt="tumblr_32627a53c24e51b93bb695ca2be6c3d2_53734cd1_2048" src="https://github.com/user-attachments/assets/86abe660-a2a5-4916-bfe3-0495d61c1171" /> 
 
-<img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
-
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F75301&center=true&vCenter=true&width=435&lines=SPOKE+IS+HERE!!1)](https://git.io/typing-svg)
 <img width="1000" height="1000" alt="tumblr_12d348893b52f6f099257e734318a999_cd5e9df7_1280" src="https://github.com/user-attachments/assets/f2ba61af-2deb-4d43-bd12-23ce0c56b3b9" />
