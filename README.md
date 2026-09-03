@@ -330,8 +330,6 @@ https://scarriotzz1x4.straw.page
 <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/65e601dd-c0c9-4672-8e9b-e2bc821d8d5d" />
 <img width="1414" height="1414" alt="image" src="https://github.com/user-attachments/assets/6c59b4e6-c12b-4d9e-9510-2860bdbc0898" />
 <img width="720" height="1280" alt="image" src="https://github.com/user-attachments/assets/f153f5f5-93e1-4929-b3ca-ba5fbbd8bc80" />
-<img width="735" height="856" alt="image" src="https://github.com/user-attachments/assets/f6248636-6476-4e93-836b-3f00cb45a39d" />
-[this is the old about me I'm 17 years old now.]
 
 <img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
 
