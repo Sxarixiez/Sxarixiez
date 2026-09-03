@@ -287,10 +287,6 @@ https://scarriotzz1x4.straw.page
 <img width="150" height="20" alt="tumblr_97180ef550bcd4812564a2afacee4725_3e473857_250" src="https://github.com/user-attachments/assets/9c94ca3d-3df7-4405-ad42-7cccd95373ee" />
 <img width="426" height="70" alt="tumblr_619608ccfddc54f1c2d2cfc7c6203ede_3a018de4_500" src="https://github.com/user-attachments/assets/4ab58c8a-789b-4bdb-a352-2c45f22389da" />
 
-<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/3450a4b4-ee64-4740-89f0-1abfa38a865a" />
-
-<img width="735" height="427" alt="image" src="https://github.com/user-attachments/assets/ce6c959f-ec68-4318-ba65-28dffedecd88" />
-
 <img width="400" height="225" alt="zenless-zenless-zone-zero" src="https://github.com/user-attachments/assets/8b61039e-f283-44a9-815b-1f5683298088" />
 
 𝙃𝙞 𝙄'𝙢 𝙎𝘾𝘼𝙍 / 𝙍𝙄𝙊𝙏 / 𝘾𝙊𝙕𝙈𝙊, 𝙢𝙞𝙡𝙚𝙨, 𝙚𝙙𝙜𝙚, 𝙢𝙞𝙡𝙡𝙚𝙧, 𝙖𝙧𝙖𝙘𝙝𝙣𝙖 𝙄 𝙝𝙖𝙫𝙚 𝙨𝙤 𝙢𝙖𝙣𝙮 𝙣𝙖𝙢𝙚𝙨 𝙘𝙖𝙡𝙡 𝙢𝙚 𝙬𝙝𝙖𝙩𝙚𝙫𝙚𝙧 𝙮𝙤𝙪 𝙬𝙖𝙣𝙩 𝙤𝙧 𝙗𝙪𝙧𝙖𝙠 𝙗𝙘𝙯 𝙄'𝙢 𝙛𝙧𝙤𝙢 𝙩𝙪𝙧𝙠𝙞𝙮𝙚  
