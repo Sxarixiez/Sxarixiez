@@ -34,7 +34,6 @@
 <img width="498" height="190" alt="mankind-is-dead-blood-is-fuel" src="https://github.com/user-attachments/assets/3979ced1-544b-43e5-ada3-89d80e0b291d" />
 <img width="498" height="281" alt="neptune-solarballs" src="https://github.com/user-attachments/assets/6d8710d1-4416-4d8b-b8fc-fdc247461ac2" />
 
-![Static Badge](https://img.shields.io/badge/scar!!-red)![Static Badge](https://img.shields.io/badge/SPOKE%20%26%20SUBSPACE%20FICTIONKIN-red)
 ![Static Badge](https://img.shields.io/badge/some%20of%20layouts%2C%20blinkies%2C%20dividers%2C%20graphics%20are%20not%20mine%20and%20their%20all%20from%20tumblr-green)
 
 <img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
@@ -142,8 +141,6 @@ https://scarriotzz1x4.straw.page
 
 <img width="735" height="295" alt="tumblr_13235e3009ee58d4355c9c9f3dc95b7b_f400a6a3_1280" src="https://github.com/user-attachments/assets/809d855c-a86e-43f3-9faa-d8984d824504" />
 
-![Static Badge](https://img.shields.io/badge/riot!!-green)![Static Badge](https://img.shields.io/badge/KILLER%20SANS%20FICTIONKIN!!-green)
-
 
 <img width="99" height="100" alt="killer-sans-lovkills" src="https://github.com/user-attachments/assets/2aebc84f-51e2-477f-90f3-ac0e7a678b87" /> 
 
@@ -201,8 +198,6 @@ https://scarriotzz1x4.straw.page
 <img width="1499" height="60" alt="tumblr_9961a204674f1c72e7af2725e336a066_589a7b0b_640" src="https://github.com/user-attachments/assets/2851d34c-2602-4cdb-bbd2-e64b2d3f781f" />
 
 <img width="1499" height="360" alt="image" src="https://github.com/user-attachments/assets/e95ba25d-5a5a-45a6-bd7b-ffea605edbbe" />
-
-![Static Badge](https://img.shields.io/badge/cozmo!!-purple)![Static Badge](https://img.shields.io/badge/GaMzEe%20MaKaRa%20FICTIONKIN-purple)
 
 
 ![Static Badge](https://img.shields.io/badge/Gamzee%20Makara%20%F0%9F%A4%A1%20-purple)
@@ -274,7 +269,6 @@ https://scarriotzz1x4.straw.page
 
 𝙔𝙊𝙐𝙍 𝘾𝙀𝙍𝙏𝙄𝙁𝙄𝙀𝘿 𝙋𝙐𝙉𝙆 𝙈𝙐𝙎𝙄𝘾 𝘼𝙉𝘿 𝙈𝙀𝙏𝘼𝙇𝙃𝙀𝘼𝘿 𝙀𝙉𝙅𝙊𝙔𝙀𝙍‼️💢  
 
-☢️ •‼️⛓️𓊈𝐂𝐄𝐑𝐓𝐈𝐅𝐈𝐄𝐃!!1 𝐏𝐇𝐈𝐒𝐍𝐎𝐌 𝐖𝐀𝐓𝐂𝐇𝐄𝐑𓊉⛓️
 <img width="350" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
 <img width="730" height="99" alt="image" src="https://github.com/user-attachments/assets/8bb95cc9-a20c-4ffb-a0b2-b0b8e6420ba3" />
 <img width="730" height="99" alt="image" src="https://github.com/user-attachments/assets/44cbadb7-81f0-4231-a54b-101250ac5e64" />
