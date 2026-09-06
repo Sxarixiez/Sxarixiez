@@ -16,6 +16,11 @@
 [![f333c65670667d35e4de08585caf39d7](https://github.com/user-attachments/assets/945bb435-c172-4a47-85dc-c81ca33cb727)](https://sc4rri0tzzxr.atabook.org)[![7a21b65c1993eeb2f61d64a7f4d0ec18](https://github.com/user-attachments/assets/6eaeb46e-2a50-48d9-902a-9a5fa54fef27)](https://scarriotzz1x4.straw.page)
 
 <img width="1280" height="720" alt="tumblr_be85f69efe51a7a9b9dc8890701569e0_2b0549e3_1280" src="https://github.com/user-attachments/assets/fc6f8889-d641-47f0-a05a-973a456784b2" />
+<details>
+  <summary>ᴡɪꜰᴇ ʀᴇᴠᴇᴀʟ</summary>
+  <p align="center"><img width="2048" height="720" alt="tumblr_9d3cb83db6991e0c7c3047ce7b1242b2_c4341433_2048" src="https://github.com/user-attachments/assets/0cb7e06f-db48-48f8-88ad-80dea75d29b2" />
+    </p>
+</details>
 
 <details>
   <summary>ᴍᴏʀᴇ ʙʟɪɴᴋɪᴇꜱ !!1</summary>
