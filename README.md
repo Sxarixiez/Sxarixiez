@@ -1,4 +1,5 @@
 <img width="1280" height="511" alt="tumblr_d5cb795a50f03968757ff8024cbd69bb_891909f1_1280" src="https://github.com/user-attachments/assets/6997be1b-fcf3-4784-b059-e17f661c6a46" />
+
 <img width="2048" height="171" alt="tumblr_fd402a0c713baf4016d55697a8720a0e_931fa291_2048" src="https://github.com/user-attachments/assets/802a3f82-b8a5-48ab-bbfe-871b88520262" />
 <img width="1138" height="60" alt="tumblr_646fd1ac6399884367a81550dc76e83a_e1692ee2_1280" src="https://github.com/user-attachments/assets/19bfa92d-6b36-4436-8d79-1d7f6670d272" />
 <img width="350" height="19" alt="tumblr_dd28fee9088f3eca01c193e87e1d6ee2_3410a28f_400" src="https://github.com/user-attachments/assets/b2941a4a-d506-41fb-b4c2-61f6c88c8e45" />
@@ -16,7 +17,8 @@
 
 <details>
   <summary>ᴍᴏʀᴇ ʙʟɪɴᴋɪᴇꜱ !!1</summary>
-  <p align="center"><img width="150" height="20" alt="tumblr_40b025424ff85ae3e9225a391ba2b88d_b2f0a17a_250" src="https://github.com/user-attachments/assets/e692d29d-93d4-4204-ae62-3e0a30adda70" />
+  <p align="center"><img width="150" height="20" alt="tumblr_8288d963b3053b47cfc1bb9b1b7c9b0f_8e07c80a_250" src="https://github.com/user-attachments/assets/04915644-cee3-425b-a433-2dfb7aea1790" />
+<img width="150" height="20" alt="tumblr_37054be2b92ba804dee5a017024a1d8a_9a833bc9_250" src="https://github.com/user-attachments/assets/3ac8ae5a-c739-452f-822d-c0bcc5ac25d6" /><img width="150" height="20" alt="tumblr_40b025424ff85ae3e9225a391ba2b88d_b2f0a17a_250" src="https://github.com/user-attachments/assets/e692d29d-93d4-4204-ae62-3e0a30adda70" />
 <img width="150" height="20" alt="tumblr_9c2e71d82c152ad113a1ada5f71b9d78_2f012d85_250" src="https://github.com/user-attachments/assets/3d8bb707-02d0-4f60-bac2-c704eccb40b3" />
 <img width="150" height="20" alt="tumblr_9b3d4ee733882ee32377bcc0b830d7be_f8b6294f_250" src="https://github.com/user-attachments/assets/318fe949-5997-4cde-8e8b-388a9c77207f" />
 <img width="800" height="107" alt="tumblr_9b0e016eca444086de97e49bb312cfe7_4e169c8b_1280" src="https://github.com/user-attachments/assets/adf07e2d-fe63-4a9e-b1f2-30f515b383eb" />
