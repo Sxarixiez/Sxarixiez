@@ -277,10 +277,6 @@ https://scarriotzz1x4.straw.page
 <img width="350" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
 <img width="477" height="100" alt="image" src="https://github.com/user-attachments/assets/73fbb0a9-e1ab-4da3-be00-8f0045882b1c" />
 
-<p align="center">
-  <img width="150" height="150" src="https://github.com/user-attachments/assets/2bcf8b32-2ee6-4190-a2a9-5d40a7d35f3e">
-</p>
-
 ![Static Badge](https://img.shields.io/badge/%22Curse%20this%20inferior%20dimension.%22-green)
 
 <img width="150" height="20" alt="tumblr_c3a825d2df91105347a7a944d379192f_1c019095_250" src="https://github.com/user-attachments/assets/7df94770-d636-4afa-9bbe-25598b7aa4c2" />
