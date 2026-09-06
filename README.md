@@ -2,7 +2,9 @@
 
 <p align="left">
   <img width="150" height="150" alt="tumblr_e2c3a908d1ce083f722a04abb9051061_7736c824_400" src="https://github.com/user-attachments/assets/54e9c840-cdb8-4ee8-867b-5002174c4760" />
-</p>  
+</p> 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=10&pause=1000&color=A30424&center=true&vCenter=true&width=435&lines=%22Muhahaha!+Now+that's+good+television!%22)](https://git.io/typing-svg)
+
 <p align="right"> 
   <img width="150" height="150" alt="tumblr_90e2d97c70d8122600d6ae8e7fe59cd2_bbcc0fa0_400" src="https://github.com/user-attachments/assets/0a1fe6fa-49ef-4fa7-9f3c-a6732eb118e4" />
 </p>
