@@ -17,7 +17,12 @@
 
 <details>
   <summary>ᴍᴏʀᴇ ʙʟɪɴᴋɪᴇꜱ !!1</summary>
-  <p align="center"><img width="150" height="20" alt="tumblr_8288d963b3053b47cfc1bb9b1b7c9b0f_8e07c80a_250" src="https://github.com/user-attachments/assets/04915644-cee3-425b-a433-2dfb7aea1790" />
+  <p align="center"><img width="150" height="20" alt="tumblr_f4abe506e4732c6619469105e1ab8d2f_80466477_250" src="https://github.com/user-attachments/assets/2df7d6f6-96f8-42ea-9305-1007b7389e30" />
+<img width="150" height="20" alt="tumblr_f51d6957a57ae940a74a5a0bcf144f26_fd91df38_250" src="https://github.com/user-attachments/assets/73c6a12c-801c-4967-b7d0-11050d780c9f" />
+<img width="600" height="80" alt="tumblr_d0e07260e9865371241de160dd150b48_083ead3b_640" src="https://github.com/user-attachments/assets/a4a114b9-da4c-440b-8e1f-14b4f2d13a7a" />
+<img width="150" height="20" alt="tumblr_120060fce5accd985c41cdbfcce8087f_1d64184e_250" src="https://github.com/user-attachments/assets/5a54d2de-96a3-4542-916c-5b62f17ae785" />
+<img width="600" height="80" alt="tumblr_821327a75c91ac56fb9dd152c5cf8a84_99cd5cb8_640" src="https://github.com/user-attachments/assets/02015ef8-a07c-46ac-9cbd-b23b4c471bf1" />
+<img width="600" height="80" alt="tumblr_74614a0a049924ea4f45893427bb4f44_2ffa4abb_640" src="https://github.com/user-attachments/assets/79033375-700b-4ca2-9acd-8040b4dac62d" /><img width="150" height="20" alt="tumblr_8288d963b3053b47cfc1bb9b1b7c9b0f_8e07c80a_250" src="https://github.com/user-attachments/assets/04915644-cee3-425b-a433-2dfb7aea1790" />
 <img width="150" height="20" alt="tumblr_37054be2b92ba804dee5a017024a1d8a_9a833bc9_250" src="https://github.com/user-attachments/assets/3ac8ae5a-c739-452f-822d-c0bcc5ac25d6" /><img width="150" height="20" alt="tumblr_40b025424ff85ae3e9225a391ba2b88d_b2f0a17a_250" src="https://github.com/user-attachments/assets/e692d29d-93d4-4204-ae62-3e0a30adda70" />
 <img width="150" height="20" alt="tumblr_9c2e71d82c152ad113a1ada5f71b9d78_2f012d85_250" src="https://github.com/user-attachments/assets/3d8bb707-02d0-4f60-bac2-c704eccb40b3" />
 <img width="150" height="20" alt="tumblr_9b3d4ee733882ee32377bcc0b830d7be_f8b6294f_250" src="https://github.com/user-attachments/assets/318fe949-5997-4cde-8e8b-388a9c77207f" />
