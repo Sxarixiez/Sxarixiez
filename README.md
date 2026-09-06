@@ -10,7 +10,13 @@
 
 <details>
   <summary>ᴍᴏʀᴇ ʙʟɪɴᴋɪᴇꜱ !!1</summary>
-  <p align="center">wip</p>
+  <p align="center"><img width="600" height="80" alt="tumblr_6ba95de22ebcdfc5a522d105d35a3d1b_d4b4677f_640" src="https://github.com/user-attachments/assets/d8a4a6c1-94fd-419c-bd4b-29823f1246f0" />
+<img width="600" height="80" alt="tumblr_4dbaa575a5a04adb30be30d54fc868e9_48fff7d9_640" src="https://github.com/user-attachments/assets/4e6de9d6-494c-439b-b7b9-9211dd5a2a70" />
+<img width="150" height="20" alt="tumblr_3a4683c2ec10498f4021ce934a5b17f0_8a47ca90_250" src="https://github.com/user-attachments/assets/1065c418-2550-43bf-a0dd-06c4762154d9" />
+<img width="150" height="20" alt="tumblr_1d62fca436d6530b0edbb24f8984b10e_6c077e84_250" src="https://github.com/user-attachments/assets/0c4ccb57-1dfd-4f04-91e8-f37f35ff573c" />
+<img width="150" height="20" alt="tumblr_1d9d242534b333958910f70e4c2c09d3_3a91c025_250" src="https://github.com/user-attachments/assets/318b55bb-3264-4262-ac5e-e00985f48c99" />
+<img width="150" height="20" alt="tumblr_1bc901f8ed31a6b77fc29cef62ddc2aa_9710bbc9_250" src="https://github.com/user-attachments/assets/84923e3a-634b-4677-a479-bc6ec00c0851" />
+<img width="150" height="20" alt="tumblr_7a5960ec1c12c5d14a58568441497349_76400a07_250" src="https://github.com/user-attachments/assets/792282b3-4158-498b-a3d9-b4fa4d71fbd5" /></p>
 </details>
 
 <img width="150" height="20" alt="blinkies (3)" src="https://github.com/user-attachments/assets/e9c71008-572c-446b-90b0-f5aec58d88d1" />
