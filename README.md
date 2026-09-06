@@ -12,6 +12,7 @@
 <img width="150" height="20" alt="tumblr_45add943df4f553bbd73feddd4dbc605_cf221368_250" src="https://github.com/user-attachments/assets/f829d88d-a753-488f-8319-549a9a501310" />
 <img width="150" height="20" alt="tumblr_9f37953dea258795d71aa92cc4a4792b_edf597fd_250" src="https://github.com/user-attachments/assets/627782ce-4749-426a-9e9b-1b5655776e90" />
 <img width="150" height="20" alt="tumblr_9e94d626db99748e82edc8ba890aa0e9_c5ac8779_250" src="https://github.com/user-attachments/assets/82ff4a24-f350-413d-9f4d-281554d59792" />
+
 <p align="center">
   <img width="150" height="150" src="https://github.com/user-attachments/assets/8430f5d9-c81f-44cd-98f4-cf624974656b">
 </p>
@@ -19,6 +20,8 @@
 <img width="798" height="100" alt="image" src="https://github.com/user-attachments/assets/ea50ff84-3b49-44bc-a055-47d8b8d6aa3c" />
 
 [![f333c65670667d35e4de08585caf39d7](https://github.com/user-attachments/assets/945bb435-c172-4a47-85dc-c81ca33cb727)](https://sc4rri0tzzxr.atabook.org)[![7a21b65c1993eeb2f61d64a7f4d0ec18](https://github.com/user-attachments/assets/6eaeb46e-2a50-48d9-902a-9a5fa54fef27)](https://scarriotzz1x4.straw.page)
+
+<img width="2048" height="497" alt="tumblr_198053cb55bbb2eec011d540345a9dfb_1f398d6e_2048" src="https://github.com/user-attachments/assets/df54138b-e3d8-43d1-b2c5-a83461abab82" />
 
 <img width="1280" height="720" alt="tumblr_be85f69efe51a7a9b9dc8890701569e0_2b0549e3_1280" src="https://github.com/user-attachments/assets/fc6f8889-d641-47f0-a05a-973a456784b2" />
 <details>
