@@ -9,7 +9,7 @@
 [![f333c65670667d35e4de08585caf39d7](https://github.com/user-attachments/assets/945bb435-c172-4a47-85dc-c81ca33cb727)](https://sc4rri0tzzxr.atabook.org)[![7a21b65c1993eeb2f61d64a7f4d0ec18](https://github.com/user-attachments/assets/6eaeb46e-2a50-48d9-902a-9a5fa54fef27)](https://scarriotzz1x4.straw.page)
 
 <details>
-  <summary>▼ MORE BLINKIES!1</summary>
+  <summary>▼ ᴍᴏʀᴇ ʙʟɪɴᴋɪᴇꜱ !!1</summary>
   <p align="center">wip</p>
 </details>
 
