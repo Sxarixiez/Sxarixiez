@@ -22,7 +22,17 @@
 <img width="150" height="20" alt="tumblr_1bc901f8ed31a6b77fc29cef62ddc2aa_9710bbc9_250" src="https://github.com/user-attachments/assets/84923e3a-634b-4677-a479-bc6ec00c0851" />
 <img width="150" height="20" alt="tumblr_7a5960ec1c12c5d14a58568441497349_76400a07_250" src="https://github.com/user-attachments/assets/792282b3-4158-498b-a3d9-b4fa4d71fbd5" /></p>
 </details>
+<p align="left">
 
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=sans&pause=1000&color=A30424&width=435&lines=%22Muhahaha!+Now+that's+good+television!%22)](https://git.io/typing-svg) 
+  <img width="150" height="150" alt="tumblr_e2c3a908d1ce083f722a04abb9051061_7736c824_400" src="https://github.com/user-attachments/assets/54e9c840-cdb8-4ee8-867b-5002174c4760" />
+</p> 
+
+<p align="right"> 
+  
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=sans&pause=1000&color=005A9E&width=435&lines=%22Heh.+I+think+I+have...+just+the+one.%22)](https://git.io/typing-svg)
+  <img width="150" height="150" alt="tumblr_90e2d97c70d8122600d6ae8e7fe59cd2_bbcc0fa0_400" src="https://github.com/user-attachments/assets/0a1fe6fa-49ef-4fa7-9f3c-a6732eb118e4" />
+</p>
 <img width="150" height="20" alt="blinkies (3)" src="https://github.com/user-attachments/assets/e9c71008-572c-446b-90b0-f5aec58d88d1" />
 <img width="150" height="20" alt="blinkies (4)" src="https://github.com/user-attachments/assets/51b6fc18-ad9e-4711-9637-84e914fec0c5" />
 <img width="150" height="20" alt="beetles-blinkie" src="https://github.com/user-attachments/assets/c1b2f37b-ab0a-4431-9701-1fdcea91f168" />
