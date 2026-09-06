@@ -10,7 +10,11 @@
 
 <details>
   <summary>ᴍᴏʀᴇ ʙʟɪɴᴋɪᴇꜱ !!1</summary>
-  <p align="center"><img width="600" height="80" alt="tumblr_6ba95de22ebcdfc5a522d105d35a3d1b_d4b4677f_640" src="https://github.com/user-attachments/assets/d8a4a6c1-94fd-419c-bd4b-29823f1246f0" />
+  <p align="center"><img width="150" height="20" alt="tumblr_40b025424ff85ae3e9225a391ba2b88d_b2f0a17a_250" src="https://github.com/user-attachments/assets/e692d29d-93d4-4204-ae62-3e0a30adda70" />
+<img width="150" height="20" alt="tumblr_9c2e71d82c152ad113a1ada5f71b9d78_2f012d85_250" src="https://github.com/user-attachments/assets/3d8bb707-02d0-4f60-bac2-c704eccb40b3" />
+<img width="150" height="20" alt="tumblr_9b3d4ee733882ee32377bcc0b830d7be_f8b6294f_250" src="https://github.com/user-attachments/assets/318fe949-5997-4cde-8e8b-388a9c77207f" />
+<img width="800" height="107" alt="tumblr_9b0e016eca444086de97e49bb312cfe7_4e169c8b_1280" src="https://github.com/user-attachments/assets/adf07e2d-fe63-4a9e-b1f2-30f515b383eb" />
+<img width="600" height="80" alt="tumblr_231b07cba2ce65aec80e0fbdd6c0bcfc_dcb2c27b_640" src="https://github.com/user-attachments/assets/f8091613-e306-4954-bc2a-8d1f8ba1ace7" /><img width="600" height="80" alt="tumblr_6ba95de22ebcdfc5a522d105d35a3d1b_d4b4677f_640" src="https://github.com/user-attachments/assets/d8a4a6c1-94fd-419c-bd4b-29823f1246f0" />
 <img width="600" height="80" alt="tumblr_4dbaa575a5a04adb30be30d54fc868e9_48fff7d9_640" src="https://github.com/user-attachments/assets/4e6de9d6-494c-439b-b7b9-9211dd5a2a70" />
 <img width="150" height="20" alt="tumblr_3a4683c2ec10498f4021ce934a5b17f0_8a47ca90_250" src="https://github.com/user-attachments/assets/1065c418-2550-43bf-a0dd-06c4762154d9" />
 <img width="150" height="20" alt="tumblr_1d62fca436d6530b0edbb24f8984b10e_6c077e84_250" src="https://github.com/user-attachments/assets/0c4ccb57-1dfd-4f04-91e8-f37f35ff573c" />
