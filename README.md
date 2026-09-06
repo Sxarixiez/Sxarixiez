@@ -36,6 +36,9 @@
 <img width="150" height="20" alt="tumblr_7a5960ec1c12c5d14a58568441497349_76400a07_250" src="https://github.com/user-attachments/assets/792282b3-4158-498b-a3d9-b4fa4d71fbd5"<img width="600" height="80" alt="tumblr_364c2f7ccf4d4bfefcaae04e0a186804_60bc6d68_640" src="https://github.com/user-attachments/assets/42888189-5dda-41fe-bf6f-9e1f309339f3" />
 <img width="150" height="20" alt="tumblr_530cf2545a4be0b6ef236b700e3e36da_5089123e_250" src="https://github.com/user-attachments/assets/7c85016e-0bd4-4d97-86d3-62a6ec2d3206" /></p>
 </details>
+
+<img width="1200" height="480" alt="tumblr_a8a7a18908b9641074e35e73eb70e525_4941aaaa_1280" src="https://github.com/user-attachments/assets/d9bc2a03-bc86-4dcc-9d99-7cf7185c5e2f" />
+
 <p align="left">
 
   [![Typing SVG](https://readme-typing-svg.demolab.com?font=sans&pause=1000&color=A30424&width=435&lines=%22Muhahaha!+Now+that's+good+television!%22)](https://git.io/typing-svg) 
