@@ -7,6 +7,8 @@
 </p> 
 
 <p align="right"> 
+  
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=sans&pause=1000&color=005A9E&width=435&lines=%22Heh.+I+think+I+have...+just+the+one.%22)](https://git.io/typing-svg)
   <img width="150" height="150" alt="tumblr_90e2d97c70d8122600d6ae8e7fe59cd2_bbcc0fa0_400" src="https://github.com/user-attachments/assets/0a1fe6fa-49ef-4fa7-9f3c-a6732eb118e4" />
 </p>
 
