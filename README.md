@@ -8,6 +8,10 @@
 
 [![f333c65670667d35e4de08585caf39d7](https://github.com/user-attachments/assets/945bb435-c172-4a47-85dc-c81ca33cb727)](https://sc4rri0tzzxr.atabook.org)[![7a21b65c1993eeb2f61d64a7f4d0ec18](https://github.com/user-attachments/assets/6eaeb46e-2a50-48d9-902a-9a5fa54fef27)](https://scarriotzz1x4.straw.page)
 
+<details>
+  <summary>▼ MORE BLINKIES!1</summary>
+  <p align="center">wip</p>
+</details>
 
 <img width="150" height="20" alt="blinkies (3)" src="https://github.com/user-attachments/assets/e9c71008-572c-446b-90b0-f5aec58d88d1" />
 <img width="150" height="20" alt="blinkies (4)" src="https://github.com/user-attachments/assets/51b6fc18-ad9e-4711-9637-84e914fec0c5" />
