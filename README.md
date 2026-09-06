@@ -1,9 +1,9 @@
 <img width="1280" height="511" alt="tumblr_d5cb795a50f03968757ff8024cbd69bb_891909f1_1280" src="https://github.com/user-attachments/assets/6997be1b-fcf3-4784-b059-e17f661c6a46" /> 
 
-<p align="center">
+<p align="left">
   <img width="150" height="150" alt="tumblr_e2c3a908d1ce083f722a04abb9051061_7736c824_400" src="https://github.com/user-attachments/assets/54e9c840-cdb8-4ee8-867b-5002174c4760" />
 </p>  
-<p align="center"> 
+<p align="right"> 
   <img width="150" height="150" alt="tumblr_90e2d97c70d8122600d6ae8e7fe59cd2_bbcc0fa0_400" src="https://github.com/user-attachments/assets/0a1fe6fa-49ef-4fa7-9f3c-a6732eb118e4" />
 </p>
 
