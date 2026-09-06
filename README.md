@@ -309,7 +309,9 @@ https://scarriotzz1x4.straw.page
 
 
 <img width="350" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
-<img width="458" height="432" alt="subspace-phighting" src="https://github.com/user-attachments/assets/96b0c52a-7b5e-4428-8467-33355abda7f5" />
+<p align="center">
+  <img width="150" height="150" src="https://github.com/user-attachments/assets/96b0c52a-7b5e-4428-8467-33355abda7f5">
+</p>
 <img width="350" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
 <img width="1320" height="100" alt="image" src="https://github.com/user-attachments/assets/da5cf577-91f1-4463-b2d9-26cca4f9e42e" />
 
