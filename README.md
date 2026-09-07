@@ -1,11 +1,12 @@
 <img width="1280" height="720" alt="tumblr_49368e36d4ed71092bfe205638124c7b_14f85b55_1280" src="https://github.com/user-attachments/assets/c8e993d9-4289-4060-95a1-224a2e76a402" />
+![Static Badge](https://img.shields.io/badge/gri3f'd%20fr0m%20me-800-green?style=for-the-badge)
 
 <p align="center">
   <img width="150" height="150" src="https://github.com/user-attachments/assets/8430f5d9-c81f-44cd-98f4-cf624974656b">
 </p>
 
 <p align="center"> 
-   <img width="150" height="150" src="https://img.shields.io/badge/gri3f'd%20fr0m%20me-800-green?style=for-the-badge"
+   <img width="20" height="10" src="https://img.shields.io/badge/gri3f'd%20fr0m%20me-800-green?style=for-the-badge"
 </p>
   
 <img width="798" height="100" alt="image" src="https://github.com/user-attachments/assets/ea50ff84-3b49-44bc-a055-47d8b8d6aa3c" />
