@@ -1,4 +1,5 @@
 <img width="1280" height="720" alt="tumblr_49368e36d4ed71092bfe205638124c7b_14f85b55_1280" src="https://github.com/user-attachments/assets/c8e993d9-4289-4060-95a1-224a2e76a402" />
+
 ![Static Badge](https://img.shields.io/badge/gri3f'd%20fr0m%20me-800-green?style=for-the-badge)
 
 <p align="center">
