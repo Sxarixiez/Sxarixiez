@@ -210,10 +210,6 @@
 <img width="735" height="295" alt="tumblr_13235e3009ee58d4355c9c9f3dc95b7b_f400a6a3_1280" src="https://github.com/user-attachments/assets/809d855c-a86e-43f3-9faa-d8984d824504" />
 
 
-<img width="99" height="100" alt="killer-sans-lovkills" src="https://github.com/user-attachments/assets/2aebc84f-51e2-477f-90f3-ac0e7a678b87" /> 
-
-![Static Badge](https://img.shields.io/badge/HELLO%2C%20WELCOME%20TO%20MY%20GITHUB%20PAGE%20THIS%20IS%20ONLY%20FOR%20THE%20PONY%20TOWN%20GAME%20SAYING%20IT%20AGAIN%20I%20DONT%20DO%20JOBS%20IM%20A%20MINOR.-yellow) 
-
 <img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
 
 <img width="735" height="400" alt="tumblr_d96406df48b1874bbe05f62079173cf1_273965d9_640" src="https://github.com/user-attachments/assets/00721ec0-dbce-4578-a4e9-109c12a865e4" />
