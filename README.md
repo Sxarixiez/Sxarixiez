@@ -269,7 +269,6 @@
 <img width="600" height="80" alt="tumblr_e3915d8ea18805a4fb68827976cf73ac_913032ff_640" src="https://github.com/user-attachments/assets/e8fdf64f-8c1d-49c2-9f4e-a74caaba0876" />
 <img width="600" height="80" alt="tumblr_e7d69b4774d190f3f19cfbbf43b8ab68_1aca2cb8_640" src="https://github.com/user-attachments/assets/7b06e2ac-246a-4a71-8f82-a53946328f5c" />  
 
-<img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
 
 <img width="99" height="100" alt="spoke-spokeishere" src="https://github.com/user-attachments/assets/5b4236a1-a4cb-4575-b2e1-2a0c2be7f843" />![Static Badge](https://img.shields.io/badge/I'M%20A%20HEAVY%20SPOKE%20FICTIONKIN%20NOW!!-red)
 ![Static Badge](https://img.shields.io/badge/Spoke%20Fictionkin-yellow)
