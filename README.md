@@ -1,3 +1,5 @@
+<img width="325" height="79" alt="471db45c1b27558d587e07e0b7ece055" src="https://github.com/user-attachments/assets/92f26d5e-6680-4bbf-a4e7-6bd2e8fab446" />
+<img width="206" height="77" alt="65737b5d92b287322bab4e86a0af554b" src="https://github.com/user-attachments/assets/619c52f8-9430-480e-90b7-31ae622c2997" />
 <img width="1280" height="720" alt="tumblr_49368e36d4ed71092bfe205638124c7b_14f85b55_1280" src="https://github.com/user-attachments/assets/c8e993d9-4289-4060-95a1-224a2e76a402" />
 
 
@@ -13,7 +15,7 @@
 
 <img width="800" height="450" alt="tumblr_72d7270636b4ec74aeb1018ba9c35653_20391b3f_1280" src="https://github.com/user-attachments/assets/f2371d93-03d4-42ed-bfb0-5e266b8a9ded" />
 
-[![f333c65670667d35e4de08585caf39d7](https://github.com/user-attachments/assets/945bb435-c172-4a47-85dc-c81ca33cb727)](https://sc4rri0tzzxr.atabook.org)[![7a21b65c1993eeb2f61d64a7f4d0ec18](https://github.com/user-attachments/assets/6eaeb46e-2a50-48d9-902a-9a5fa54fef27)](https://scarintro.straw.page/)[![7683906f39f77d3195dc8adba890d9e7](https://github.com/user-attachments/assets/45a69aef-d7d7-4e3d-9ad8-a4fe7b1e5c2f)](https://scarrzzonguts.straw.page/)
+[![f333c65670667d35e4de08585caf39d7](https://github.com/user-attachments/assets/945bb435-c172-4a47-85dc-c81ca33cb727)](https://sc4rri0tzzxr.atabook.org)[![7a21b65c1993eeb2f61d64a7f4d0ec18](https://github.com/user-attachments/assets/6eaeb46e-2a50-48d9-902a-9a5fa54fef27)](https://scarintro.straw.page/)[![7683906f39f77d3195dc8adba890d9e7](https://github.com/user-attachments/assets/45a69aef-d7d7-4e3d-9ad8-a4fe7b1e5c2f)](https://scarrzzonguts.straw.page/)[![65737b5d92b287322bab4e86a0af554b](https://github.com/user-attachments/assets/619c52f8-9430-480e-90b7-31ae622c2997)](https://xenoraxxiezzaboutme.carrd.co/)
 
 
 <img width="2048" height="171" alt="tumblr_fd402a0c713baf4016d55697a8720a0e_931fa291_2048" src="https://github.com/user-attachments/assets/802a3f82-b8a5-48ab-bbfe-871b88520262" />
