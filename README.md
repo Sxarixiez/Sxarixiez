@@ -59,6 +59,7 @@
 
 <img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
 
+<p align="center">
 <details>
   <summary>ᴡɪꜰᴇ ʀᴇᴠᴇᴀʟ</summary>
   <p align="center"><img width="268" height="175" alt="tumblr_21f6641c03908b827cafa61ba88d7c87_bf5ac484_400" src="https://github.com/user-attachments/assets/c32c51b4-5d76-42f6-8da7-3f2eda8f8007" /><img width="1920" height="1080" alt="tumblr_493ff8a4bdf651c4ffd89bebf7361a34_64eb4734_2048" src="https://github.com/user-attachments/assets/e8822601-71a9-4136-94a6-88138a83b5ed" />
@@ -66,6 +67,7 @@
     </p>
 </details>
 
+<p align="center">
 <details>
   <summary>ᴍᴏʀᴇ ʙʟɪɴᴋɪᴇꜱ !!1</summary>
   <p align="center"><img width="600" height="80" alt="tumblr_dc1bbdfd66fbd2fa2d0a49e62f2d4ac2_5737bff9_640" src="https://github.com/user-attachments/assets/c1c19cb0-fffe-4180-a784-0b78c8a67ac0" />
