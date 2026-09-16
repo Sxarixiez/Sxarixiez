@@ -589,7 +589,7 @@
 
 <p align="left">
   
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=cartoony&pause=1000&color=F72D2D&center=true&vCenter=true&width=435&separator=%3C&lines=%22Hehe%2C+sure.+Goodnight+;%29%22)](https://git.io/typing-svg)<img width="436" height="353" alt="gif" src="https://github.com/user-attachments/assets/41b81abd-3c02-4c76-956a-1c848405f8fa" />
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=cartoony&pause=1000&color=F72D2D&center=true&vCenter=true&width=435&separator=%3C&lines=%22Hehe%2C+sure.+Goodnight+;%29%22)](https://git.io/typing-svg)<img width="250" height="262" alt="gif" src="https://github.com/user-attachments/assets/41b81abd-3c02-4c76-956a-1c848405f8fa" />
 </p> 
 
 
