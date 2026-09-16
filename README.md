@@ -553,6 +553,10 @@
 <img width="458" height="498" alt="spokeishere-spoke-is-here" src="https://github.com/user-attachments/assets/3c8db863-a58a-45e7-a9ee-1c56d3c32039" /> 
 
 <p align="center">
+  <img width="1063" height="99" alt="9fb36e8ebb421c8edf1e163ceaf4e1b3" src="https://github.com/user-attachments/assets/473b468a-9669-4fb1-b775-37fe090b454e" />
+</p>
+
+<p align="center">
   <img width="545" height="217" alt="Ekran görüntüsü 2026-09-16 024749" src="https://github.com/user-attachments/assets/7b9c7bd7-2899-4d63-8d58-784798ac308d" />
 </p>
 
