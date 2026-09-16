@@ -624,7 +624,7 @@
 
 <p align="left">
   
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=cartoony&pause=1000&color=F72D2D&center=true&vCenter=true&width=435&separator=%3C&lines=%22Hehe%2C+sure.+Goodnight+;%29%22)](https://git.io/typing-svg)<img width="250" height="230" alt="gif" src="https://github.com/user-attachments/assets/41b81abd-3c02-4c76-956a-1c848405f8fa" />
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=cartoony&pause=1000&color=F72D2D&center=true&vCenter=true&width=435&separator=%3C&lines=%22Hehe%2C+sure.+Goodnight+;%29%22)](https://git.io/typing-svg)<img width="250" height="200" alt="gif" src="https://github.com/user-attachments/assets/41b81abd-3c02-4c76-956a-1c848405f8fa" />
 </p> 
 
 <img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/8eb28093-09a8-4109-97b8-21fe92f1629d" />
