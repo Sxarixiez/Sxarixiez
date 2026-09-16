@@ -479,26 +479,31 @@
 
 ᴅᴜᴍʙ 7ᴛᴇᴇɴ -ᴍɪɴᴏʀ- ʟɪᴛᴛʟᴇ ꜱɪʟʟʏ ᴀꜱꜰ ᴀᴜᴅʜᴅ ʙᴏʏɢɪʀʟᴛʜɪɴɢ [ᴀɴʏ ᴘʀᴏɴᴏᴜɴꜱ] #𝙏𝙃𝙀𝘿𝘼𝙍𝙆𝙇𝙊𝙍𝘿𝙎𝙄𝙈𝙋 #ˢᴴᴬᴿᴷᶠᴵᶜᵀᴵⱽᴱ 
 <img width="736" height="737" alt="image" src="https://github.com/user-attachments/assets/f1f87771-12b5-4ba9-9d04-3909e1ff70d5" /> 
-<img width="350" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
+<img width="1280" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
 <img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/9fc729e2-db24-41ad-8ca1-13370733bdd2" />
 
 <img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/abc17c2e-39cd-4c36-b978-63c2e0d1c5fe" /> 
-<img width="350" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
+<img width="1280" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
 
 丂乂卂尺乂丨尺丨乇 !!1 ᵁᴿ ᴸᴼᶜᴬᴸ ᴾᵁᴺᴷ/ᴹᴱᵀᴬᴸ ᴱᴺᴶᴼʸᴱᴿ  
 
 𝙔𝙊𝙐𝙍 𝘾𝙀𝙍𝙏𝙄𝙁𝙄𝙀𝘿 𝙋𝙐𝙉𝙆 𝙈𝙐𝙎𝙄𝘾 𝘼𝙉𝘿 𝙈𝙀𝙏𝘼𝙇𝙃𝙀𝘼𝘿 𝙀𝙉𝙅𝙊𝙔𝙀𝙍‼️💢  
 
-<img width="350" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
-<img width="730" height="99" alt="image" src="https://github.com/user-attachments/assets/8bb95cc9-a20c-4ffb-a0b2-b0b8e6420ba3" />
+<img width="1280" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
+
+<p align="center">
+<details>
+  <summary>𝙈𝙀 𝘾𝙊𝙍𝙀!!</summary><img width="730" height="99" alt="image" src="https://github.com/user-attachments/assets/8bb95cc9-a20c-4ffb-a0b2-b0b8e6420ba3" />
 <img width="730" height="99" alt="image" src="https://github.com/user-attachments/assets/44cbadb7-81f0-4231-a54b-101250ac5e64" />
 <img width="66" height="31" alt="imvu-blinkies" src="https://github.com/user-attachments/assets/2825a3d7-a033-4f70-a06f-f6b45c1cd404" /> <img width="150" height="20" alt="glow-in-the-dark-glow" src="https://github.com/user-attachments/assets/ed772e22-d5ba-4c6e-b251-f860398fa1b0" /> <img width="150" height="20" alt="blinkies" src="https://github.com/user-attachments/assets/217e9fd7-0dfb-483e-a2b2-b51d71b2918f" /> <img width="177" height="32" alt="pizza-freak" src="https://github.com/user-attachments/assets/3fefebb6-a091-44f2-8975-0b588802178e" /><img width="498" height="95" alt="blinkie-blinkies" src="https://github.com/user-attachments/assets/f6bcfa0a-d9c8-49e4-96dd-e57458a1b235" /><img width="300" height="70" alt="blinkie-blinkies (1)" src="https://github.com/user-attachments/assets/e969f22a-dd0e-401d-951e-60bdaca5fd1b" /><img width="300" height="70" alt="hatsune-miku-vocaloid" src="https://github.com/user-attachments/assets/94301093-db65-4218-a646-a9a9acf132c1" /><img width="150" height="20" alt="blinkies-blinkie" src="https://github.com/user-attachments/assets/fee547fa-073b-4103-8de9-7d2db132fe3a" /><img width="150" height="20" alt="science-science-lover" src="https://github.com/user-attachments/assets/0c7856ea-1265-4bcd-a42a-2b267cb7892e" /><img width="498" height="67" alt="blinkies (5)" src="https://github.com/user-attachments/assets/cf6d9bcd-7780-4c0b-a4ab-7235181e8332" />
+    </p>
+</details>
 
 <p align="center">
   <img width="498" height="281" alt="silver-wolf-honkai-star-rail" src="https://github.com/user-attachments/assets/1c2703a0-7e35-4160-8273-4daab4ae8346" />
 </p> 
 
-<img width="350" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
+<img width="1280" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
 
 <p align="center">
   <img width="477" height="100" alt="image" src="https://github.com/user-attachments/assets/73fbb0a9-e1ab-4da3-be00-8f0045882b1c" />
@@ -531,7 +536,7 @@
 <img width="698" height="689" alt="tumblr_9fa83d4b86752b01528c7edafb1c3184_91dd2055_1280" src="https://github.com/user-attachments/assets/b2b569d0-d997-461a-90e5-78021b4c7ac6" />
 
 
-<img width="350" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />                    
+<img width="1280" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />                    
 
 
 
@@ -542,13 +547,13 @@
 
 
 
-<img width="350" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
+<img width="1280" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
 
 <p align="center">
   <img width="150" height="150" src="https://github.com/user-attachments/assets/96b0c52a-7b5e-4428-8467-33355abda7f5">
 </p>
 
-<img width="350" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
+<img width="1280" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
 <img width="1320" height="100" alt="image" src="https://github.com/user-attachments/assets/da5cf577-91f1-4463-b2d9-26cca4f9e42e" />
 
 <p align="center">
@@ -561,7 +566,7 @@
 
 𝗗𝗡𝗜; 𝙞𝙛 𝙮𝙤𝙪'𝙧𝙚 𝙯𝙞𝙤𝙣𝙞𝙨𝙩, 𝙖𝙗𝙡𝙚𝙞𝙨𝙩, 𝙗𝙞𝙜𝙤𝙩, 𝙥𝙚𝙙𝙤𝙥𝙝𝙞𝙡𝙚, 𝙯𝙤𝙤𝙥𝙝𝙞𝙡𝙚, 𝙝𝙤𝙢𝙤𝙥𝙝𝙤𝙗𝙞𝙘, 𝙩𝙧𝙖𝙣𝙨𝙥𝙝𝙤𝙗𝙞𝙘, 𝙜𝙧𝙤𝙤𝙢𝙚𝙧, 𝙧𝙖𝙥𝙞𝙨𝙩, 𝙎𝘼 𝘿𝙊𝙀𝙍, 𝙧𝙖𝙘𝙞𝙨𝙩, 𝙙𝙖𝙧𝙠/𝙘𝙤𝙢/𝙥𝙧𝙤 𝙨𝙝𝙞𝙥𝙥𝙚𝙧.
 
-<img width="350" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
+<img width="1280" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
 <img width="1137" height="100" alt="image" src="https://github.com/user-attachments/assets/4411ad4a-4a8e-4bc8-81b9-c38dc8a71d20" />
 
 <p align="center">
