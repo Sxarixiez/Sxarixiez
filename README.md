@@ -585,28 +585,35 @@
 
 <img width="458" height="498" alt="spokeishere-spoke-is-here" src="https://github.com/user-attachments/assets/3c8db863-a58a-45e7-a9ee-1c56d3c32039" /> 
 
+<img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/8eb28093-09a8-4109-97b8-21fe92f1629d" />
+
 <p align="left">
   
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=cartoony&pause=1000&color=F72D2D&center=true&vCenter=true&width=435&separator=%3C&lines=%22Hehe%2C+sure.+Goodnight+;%29%22)](https://git.io/typing-svg)<img width="250" height="230" alt="gif" src="https://github.com/user-attachments/assets/41b81abd-3c02-4c76-956a-1c848405f8fa" />
 </p> 
 
-
+<img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/8eb28093-09a8-4109-97b8-21fe92f1629d" />
 
 <p align="right"> 
   
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=cartoony&pause=1000&color=F72D2D&center=true&vCenter=true&width=435&lines=%22You+are+so+sweet!%22)](https://git.io/typing-svg)<img width="250" height="262" alt="gif (3)" src="https://github.com/user-attachments/assets/f0150331-8d51-445a-a9e2-3c076b8f521a" />
 </p> 
 
+<img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/8eb28093-09a8-4109-97b8-21fe92f1629d" />
 
 <p align="left">
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=cartoony&pause=1000&color=F72D2D&center=true&vCenter=true&width=435&lines=%22You+mean+that%3F%22)](https://git.io/typing-svg)<img width="250" height="262" alt="gif (1)" src="https://github.com/user-attachments/assets/8bf99e60-640e-4403-b33b-52bf70ace601" />
 </p> 
 
+<img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/8eb28093-09a8-4109-97b8-21fe92f1629d" />
+
 <p align="right"> 
   
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=cartoony&pause=1000&color=F72D2D&center=true&vCenter=true&width=435&lines=%22You+wrote+this+one+for+me%3F%22)](https://git.io/typing-svg)<img width="250" height="262" alt="gif (2)" src="https://github.com/user-attachments/assets/c3b96fde-6356-4545-b8ff-aebb7bf4c9a3" />
 </p> 
+
+<img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/8eb28093-09a8-4109-97b8-21fe92f1629d" />
 
 <p align="center">
   <img width="1063" height="99" alt="9fb36e8ebb421c8edf1e163ceaf4e1b3" src="https://github.com/user-attachments/assets/473b468a-9669-4fb1-b775-37fe090b454e" />
