@@ -593,7 +593,7 @@
 
 <p align="left">
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=cartoony&pause=1000&color=F72D2D&center=true&vCenter=true&width=435&lines=%22You+mean+that%3F%22)](https://git.io/typing-svg)<img width="498" height="498" alt="gif (1)" src="https://github.com/user-attachments/assets/8bf99e60-640e-4403-b33b-52bf70ace601" />
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=cartoony&pause=1000&color=F72D2D&center=true&vCenter=true&width=435&lines=%22You+mean+that%3F%22)](https://git.io/typing-svg)<img width="250" height="262" alt="gif (1)" src="https://github.com/user-attachments/assets/8bf99e60-640e-4403-b33b-52bf70ace601" />
 </p> 
 
 <p align="right"> 
