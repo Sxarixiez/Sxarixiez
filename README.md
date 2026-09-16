@@ -619,7 +619,7 @@
 </p>
 
 <p align="center">
-  <img width="465" height="498" alt="qt-dance" src="https://github.com/user-attachments/assets/90803d8d-c8a3-4c42-98bb-d8f86e8a0d78" />
+  <img width="150" height="150" alt="qt-dance" src="https://github.com/user-attachments/assets/90803d8d-c8a3-4c42-98bb-d8f86e8a0d78" />
 </p>
 
 <!--
