@@ -1,4 +1,3 @@
-<img width="465" height="498" alt="qt-dance" src="https://github.com/user-attachments/assets/90803d8d-c8a3-4c42-98bb-d8f86e8a0d78" />
 <img width="1280" height="720" alt="tumblr_49368e36d4ed71092bfe205638124c7b_14f85b55_1280" src="https://github.com/user-attachments/assets/c8e993d9-4289-4060-95a1-224a2e76a402" />
 
 
@@ -617,6 +616,10 @@
 
 <p align="center">
   <img width="545" height="217" alt="Ekran görüntüsü 2026-09-16 024749" src="https://github.com/user-attachments/assets/7b9c7bd7-2899-4d63-8d58-784798ac308d" />
+</p>
+
+<p align="center">
+  <img width="465" height="498" alt="qt-dance" src="https://github.com/user-attachments/assets/90803d8d-c8a3-4c42-98bb-d8f86e8a0d78" />
 </p>
 
 <!--
