@@ -1,4 +1,3 @@
-<img width="436" height="353" alt="gif" src="https://github.com/user-attachments/assets/41b81abd-3c02-4c76-956a-1c848405f8fa" />
 <img width="465" height="498" alt="qt-dance" src="https://github.com/user-attachments/assets/90803d8d-c8a3-4c42-98bb-d8f86e8a0d78" />
 <img width="1280" height="720" alt="tumblr_49368e36d4ed71092bfe205638124c7b_14f85b55_1280" src="https://github.com/user-attachments/assets/c8e993d9-4289-4060-95a1-224a2e76a402" />
 
@@ -588,6 +587,13 @@
 <img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
 
 <img width="458" height="498" alt="spokeishere-spoke-is-here" src="https://github.com/user-attachments/assets/3c8db863-a58a-45e7-a9ee-1c56d3c32039" /> 
+
+<p align="left">
+  
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=cartoony&pause=1000&color=F72D2D&center=true&vCenter=true&width=435&separator=%3C&lines=%22Hehe%2C+sure.+Goodnight+;%29%22)](https://git.io/typing-svg)<img width="436" height="353" alt="gif" src="https://github.com/user-attachments/assets/41b81abd-3c02-4c76-956a-1c848405f8fa" />
+</p> 
+
+
 
 <p align="right"> 
   
