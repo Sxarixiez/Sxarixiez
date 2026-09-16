@@ -591,9 +591,8 @@
 
 <p align="right"> 
   
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=cartoony&pause=1000&color=F72D2D&center=true&vCenter=true&width=435&lines=%22You+are+so+sweet!%22)](https://git.io/typing-svg)<img width="498" height="498" alt="gif (3)" src="https://github.com/user-attachments/assets/f0150331-8d51-445a-a9e2-3c076b8f521a" />
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=cartoony&pause=1000&color=F72D2D&center=true&vCenter=true&width=435&lines=%22You+are+so+sweet!%22)](https://git.io/typing-svg)<img width="250" height="262" alt="gif (3)" src="https://github.com/user-attachments/assets/f0150331-8d51-445a-a9e2-3c076b8f521a" />
 </p> 
-
 
 
 <p align="left">
