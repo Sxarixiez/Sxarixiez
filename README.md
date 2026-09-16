@@ -35,7 +35,8 @@
 <p align="center"> 
   <img width="498" height="281" alt="marvel-rivals-mr" src="https://github.com/user-attachments/assets/7dc4a46a-ab27-483d-b31d-ad1c75124934" /> 
  </p>
- 
+<img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/38eb9e4d-7a83-46fc-b406-914fe3a36e1f" />
+
   [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=AD0000&center=true&vCenter=true&width=435&lines=%22+%F0%9D%98%A0%F0%9D%99%A4%F0%9D%98%B6+%F0%9D%99%88%F0%9D%98%90%F0%9D%99%82%F0%9D%98%8F%F0%9D%99%8F+%F0%9D%98%8B%F0%9D%99%9E%F0%9D%98%A6!+%22)](https://git.io/typing-svg)<img width="150" height="150" alt="tumblr_0f080a3aaed56a664367bfbbbafa8a47_eda2a48c_1280" src="https://github.com/user-attachments/assets/9185b797-27cc-42c7-b6bf-0a1b27799f2e" />
 <img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/38eb9e4d-7a83-46fc-b406-914fe3a36e1f" />
 
