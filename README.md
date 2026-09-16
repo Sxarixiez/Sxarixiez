@@ -32,10 +32,10 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F72900&center=true&vCenter=true&width=435&lines=%22+%F0%9D%98%9B%F0%9D%99%83%F0%9D%98%8C+%F0%9D%98%BF%F0%9D%98%A6%F0%9D%99%AB%F0%9D%98%AA%F0%9D%99%A1+%F0%9D%98%8F%F0%9D%98%BC%F0%9D%98%9A+%F0%9D%98%BD%F0%9D%98%A6%F0%9D%99%9A%F0%9D%98%AF+%F0%9D%99%92%F0%9D%98%88%F0%9D%99%86%F0%9D%98%8C%F0%9D%99%89+%F0%9D%98%9C%F0%9D%99%A5!+%22)](https://git.io/typing-svg)
 <p align="center"> 
-  <img width="498" height="281" alt="marvel-rivals-mr" src="https://github.com/user-attachments/assets/7dc4a46a-ab27-483d-b31d-ad1c75124934" />
+  <img width="498" height="281" alt="marvel-rivals-mr" src="https://github.com/user-attachments/assets/7dc4a46a-ab27-483d-b31d-ad1c75124934" /> 
+  
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=AD0000&center=true&vCenter=true&width=435&lines=%22+%F0%9D%98%A0%F0%9D%99%A4%F0%9D%98%B6+%F0%9D%99%88%F0%9D%98%90%F0%9D%99%82%F0%9D%98%8F%F0%9D%99%8F+%F0%9D%98%8B%F0%9D%99%9E%F0%9D%98%A6!+%22)](https://git.io/typing-svg)
 </p>
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=AD0000&center=true&vCenter=true&width=435&lines=%22+%F0%9D%98%A0%F0%9D%99%A4%F0%9D%98%B6+%F0%9D%99%88%F0%9D%98%90%F0%9D%99%82%F0%9D%98%8F%F0%9D%99%8F+%F0%9D%98%8B%F0%9D%99%9E%F0%9D%98%A6!+%22)](https://git.io/typing-svg)
 
 <img width="2048" height="171" alt="tumblr_fd402a0c713baf4016d55697a8720a0e_931fa291_2048" src="https://github.com/user-attachments/assets/802a3f82-b8a5-48ab-bbfe-871b88520262" />
 
