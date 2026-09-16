@@ -550,9 +550,18 @@
 
 ![Static Badge](https://img.shields.io/badge/HERES%20SOME%20MEMORIES%20FROM%20PONY%20TOWN-yellow)
 
-
-
-
+<img width="270" height="257" alt="Ekran görüntüsü 2026-09-14 211529" src="https://github.com/user-attachments/assets/9c263b61-f02d-4337-97c0-b96ecdc71f4d" />
+<img width="416" height="227" alt="Ekran görüntüsü 2026-09-11 172307" src="https://github.com/user-attachments/assets/2aed1734-ab31-4f46-bb17-9fb89072cb46" />
+<img width="807" height="263" alt="Ekran görüntüsü 2026-08-31 140117" src="https://github.com/user-attachments/assets/a33ae3c1-674e-4a7e-981c-fbf24d92b67e" />
+<img width="1036" height="253" alt="Ekran görüntüsü 2026-08-12 020431" src="https://github.com/user-attachments/assets/f59d0a96-8faa-443c-8249-48aa48912b7e" />
+<img width="1210" height="388" alt="Ekran görüntüsü 2026-08-12 232201" src="https://github.com/user-attachments/assets/5f460a2a-994a-4020-a11f-46bde8b6733c" />
+<img width="276" height="347" alt="Ekran görüntüsü 2026-08-10 234408" src="https://github.com/user-attachments/assets/e59b75e9-c947-45ce-868a-9ef3f8f8555d" />
+<img width="376" height="326" alt="Ekran görüntüsü 2026-08-02 211735" src="https://github.com/user-attachments/assets/40003c4e-f8ed-461d-a4ff-eef84ed2d76a" />
+<img width="291" height="191" alt="Ekran görüntüsü 2026-08-02 142720" src="https://github.com/user-attachments/assets/d0ec1669-58bd-4ccd-8931-4a1c0013119b" />
+<img width="245" height="196" alt="Ekran görüntüsü 2026-08-02 040327" src="https://github.com/user-attachments/assets/abca927d-c3b2-4c58-b8ad-c4502e990d68" />
+<img width="298" height="253" alt="Ekran görüntüsü 2026-08-03 022630" src="https://github.com/user-attachments/assets/485db855-9607-4c3c-b99d-9e118d760046" />
+<img width="747" height="487" alt="Ekran görüntüsü 2026-07-29 211115" src="https://github.com/user-attachments/assets/0d23d4d0-2e5b-4174-8c5c-821c0110525b" />
+<img width="292" height="306" alt="Ekran görüntüsü 2026-07-24 014320" src="https://github.com/user-attachments/assets/12f04d8e-3eec-4703-a864-f2e019d669d4" />
 <img width="317" height="316" alt="Ekran görüntüsü 2026-07-22 120621" src="https://github.com/user-attachments/assets/05432eb4-d012-4ec8-85d0-60d2e93fd4db" /><img width="232" height="277" alt="Ekran görüntüsü 2026-07-16 195839" src="https://github.com/user-attachments/assets/5f288288-7f26-46ae-af16-5ea3bd26e417" /><img width="312" height="198" alt="Ekran görüntüsü 2026-07-17 193759" src="https://github.com/user-attachments/assets/b85f99f1-79bf-47a4-b190-0bf59caefd9f" />
 <img width="481" height="221" alt="Ekran görüntüsü 2026-07-13 182535" src="https://github.com/user-attachments/assets/c8e7c46c-5ca6-4e6e-8cd7-44f6522a7726" /><img width="412" height="222" alt="Ekran görüntüsü 2026-07-11 095111" src="https://github.com/user-attachments/assets/14156d33-01f9-4678-a884-3d2904029d5a" />
 <img width="1533" height="576" alt="Ekran görüntüsü 2026-07-19 080142" src="https://github.com/user-attachments/assets/6d970ba7-b5ff-4326-9d62-1cac9b284aed" /> 
