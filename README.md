@@ -8,6 +8,7 @@
 <p align="center"> 
    <img width="91" height="18" src="https://img.shields.io/badge/gri3f'd%20fr0m%20me-800-green?style=for-the-badge"
 </p>
+
 <img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/38eb9e4d-7a83-46fc-b406-914fe3a36e1f" />
 <img width="350" height="19" alt="tumblr_e9a0178c836ab965c132fefb4f4caa9c_296b77eb_400" src="https://github.com/user-attachments/assets/6262722a-d5e8-4808-996a-67abea32a2e2" />
 <img width="350" height="19" alt="tumblr_9b9c4fc56febb90550021a2796b987b3_fef44f4c_400" src="https://github.com/user-attachments/assets/3efc706b-c5fd-4789-8dc3-ba0f2e42950c" />  
@@ -18,7 +19,9 @@
 [![f333c65670667d35e4de08585caf39d7](https://github.com/user-attachments/assets/945bb435-c172-4a47-85dc-c81ca33cb727)](https://sc4rri0tzzxr.atabook.org)[![7a21b65c1993eeb2f61d64a7f4d0ec18](https://github.com/user-attachments/assets/6eaeb46e-2a50-48d9-902a-9a5fa54fef27)](https://scarintro.straw.page/)[![7683906f39f77d3195dc8adba890d9e7](https://github.com/user-attachments/assets/45a69aef-d7d7-4e3d-9ad8-a4fe7b1e5c2f)](https://scarrzzonguts.straw.page/)[![fbb709b7187f1f6071487153ebbcac93](https://github.com/user-attachments/assets/53295804-3480-41a8-8e29-45d8bd461281)](https://xenowarning.straw.page/)
 [![65737b5d92b287322bab4e86a0af554b](https://github.com/user-attachments/assets/619c52f8-9430-480e-90b7-31ae622c2997)](https://xenoraxxiezzaboutme.carrd.co/)[![471db45c1b27558d587e07e0b7ece055](https://github.com/user-attachments/assets/92f26d5e-6680-4bbf-a4e7-6bd2e8fab446)](https://guns.lol/thelordsxarixiez)
 
-<img width="1280" height="722" alt="marvel-rivals-mr (1) (1) (1) (2)" src="https://github.com/user-attachments/assets/45af9810-4f5c-4c1d-a561-7ff35789aeaa" />
+<p align="center"> 
+  <img width="498" height="281" alt="marvel-rivals-mr" src="https://github.com/user-attachments/assets/7dc4a46a-ab27-483d-b31d-ad1c75124934" />
+</p>
 
 <img width="2048" height="171" alt="tumblr_fd402a0c713baf4016d55697a8720a0e_931fa291_2048" src="https://github.com/user-attachments/assets/802a3f82-b8a5-48ab-bbfe-871b88520262" />
 <img width="1138" height="60" alt="tumblr_e8f5d4afe6b91c86ca414102347e0c32_cb10f62a_1280" src="https://github.com/user-attachments/assets/7d3aea7f-f46d-4ec2-a968-1c6a85364bc2" />
