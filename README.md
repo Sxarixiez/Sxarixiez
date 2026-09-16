@@ -614,22 +614,55 @@
 
 # ᴍʏ ꜰɪᴄᴛɪᴏɴᴀʟ ᴡɪꜰᴇ ʙᴛᴡ :3 
 
-<img width="498" height="498" alt="zenless-zone-zero-zzz" src="https://github.com/user-attachments/assets/e16491cd-52f0-4684-9e7b-888dc9fb949d" />
+<p align="center">
+  <img width="498" height="498" alt="zenless-zone-zero-zzz" src="https://github.com/user-attachments/assets/e16491cd-52f0-4684-9e7b-888dc9fb949d" />
+</p> 
 
-<img width="395" height="498" alt="jane-doe-zzz-zenless-zone-zero" src="https://github.com/user-attachments/assets/eb9be32d-ca1e-4709-9717-4a01a3eb79b6" />
-<img width="498" height="498" alt="jane-doe-zenless-zone-zero (1)" src="https://github.com/user-attachments/assets/8c1ab3af-e8b2-43ca-a3a7-e0595987d51e" />
-<img width="498" height="498" alt="jane-doe-zenless-zone-zero" src="https://github.com/user-attachments/assets/7ab7056d-0fdf-4868-b711-3186909db220" />
-<img width="498" height="390" alt="jane-doe-zenless-zone-zero (2)" src="https://github.com/user-attachments/assets/115284d9-9baf-4e60-b6a0-196623a6cd9a" />
-<img width="374" height="498" alt="janedoe-janedoezzz" src="https://github.com/user-attachments/assets/f14ab6cc-f07e-4de9-9ab9-931ed1fd2169" />
-<img width="393" height="415" alt="zzz-jane-doe" src="https://github.com/user-attachments/assets/67640c54-8163-40ad-91cb-73749405bd37" />
-<img width="336" height="498" alt="jane-doe-zzz (2)" src="https://github.com/user-attachments/assets/01f6b8c0-8bf8-43c3-a505-9ab615be5191" />
-<img width="498" height="362" alt="absolute-cinema-jane-doe" src="https://github.com/user-attachments/assets/da960b5f-f5d4-4268-9353-d1029d29eefc" />
-<img width="498" height="324" alt="jane-doe-jane-doe-zzz (1)" src="https://github.com/user-attachments/assets/938f1ae6-49f5-4031-b2d6-07be47beb57a" />
-<img width="417" height="498" alt="oh-my-goodness-gracious-zzz" src="https://github.com/user-attachments/assets/7e861e28-f342-4a80-ad48-ed927f7689b9" />
+<p align="center">
+  <img width="395" height="498" alt="jane-doe-zzz-zenless-zone-zero" src="https://github.com/user-attachments/assets/eb9be32d-ca1e-4709-9717-4a01a3eb79b6" />
+</p> 
+
+<p align="center">  
+  <img width="498" height="498" alt="jane-doe-zenless-zone-zero (1)" src="https://github.com/user-attachments/assets/8c1ab3af-e8b2-43ca-a3a7-e0595987d51e" />
+</p> 
+
+<p align="center">  
+  <img width="498" height="498" alt="jane-doe-zenless-zone-zero" src="https://github.com/user-attachments/assets/7ab7056d-0fdf-4868-b711-3186909db220" />
+</p> 
+
+<p align="center">
+  <img width="498" height="390" alt="jane-doe-zenless-zone-zero (2)" src="https://github.com/user-attachments/assets/115284d9-9baf-4e60-b6a0-196623a6cd9a" />
+</p> 
+
+<p align="center">  
+  <img width="374" height="498" alt="janedoe-janedoezzz" src="https://github.com/user-attachments/assets/f14ab6cc-f07e-4de9-9ab9-931ed1fd2169" />
+</p> 
+
+<p align="center">  
+  <img width="393" height="415" alt="zzz-jane-doe" src="https://github.com/user-attachments/assets/67640c54-8163-40ad-91cb-73749405bd37" />
+</p> 
+
+<p align="center">  
+  <img width="336" height="498" alt="jane-doe-zzz (2)" src="https://github.com/user-attachments/assets/01f6b8c0-8bf8-43c3-a505-9ab615be5191" />
+</p> 
+
+<p align="center">  
+  <img width="498" height="362" alt="absolute-cinema-jane-doe" src="https://github.com/user-attachments/assets/da960b5f-f5d4-4268-9353-d1029d29eefc" />
+</p> 
+
+<p align="center">
+  <img width="498" height="324" alt="jane-doe-jane-doe-zzz (1)" src="https://github.com/user-attachments/assets/938f1ae6-49f5-4031-b2d6-07be47beb57a" />
+</p> 
+
+<p align="center">  
+  <img width="417" height="498" alt="oh-my-goodness-gracious-zzz" src="https://github.com/user-attachments/assets/7e861e28-f342-4a80-ad48-ed927f7689b9" />
+</p>   
 
 <img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
 
-<img width="458" height="498" alt="spokeishere-spoke-is-here" src="https://github.com/user-attachments/assets/3c8db863-a58a-45e7-a9ee-1c56d3c32039" /> 
+<p align="center"> 
+  <img width="458" height="498" alt="spokeishere-spoke-is-here" src="https://github.com/user-attachments/assets/3c8db863-a58a-45e7-a9ee-1c56d3c32039" /> 
+</p>   
 
 <img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/8eb28093-09a8-4109-97b8-21fe92f1629d" />
 
