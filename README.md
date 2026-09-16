@@ -560,7 +560,7 @@
 
 <img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
 
-![Static Badge](https://img.shields.io/badge/HERES%20SOME%20MEMORIES%20FROM%20PONY%20TOWN-yellow)
+<img width="1192" height="91" alt="34715daa8210b5ea4324a87f4c572307" src="https://github.com/user-attachments/assets/5adfe128-d80e-46b7-80bb-729f27f9bfc3" />
 
 <img width="270" height="257" alt="Ekran görüntüsü 2026-09-14 211529" src="https://github.com/user-attachments/assets/9c263b61-f02d-4337-97c0-b96ecdc71f4d" />
 <img width="416" height="227" alt="Ekran görüntüsü 2026-09-11 172307" src="https://github.com/user-attachments/assets/2aed1734-ab31-4f46-bb17-9fb89072cb46" />
