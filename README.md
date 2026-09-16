@@ -8,7 +8,8 @@
 <p align="center"> 
    <img width="91" height="18" src="https://img.shields.io/badge/gri3f'd%20fr0m%20me-800-green?style=for-the-badge"
 </p>
-  
+<img width="350" height="19" alt="tumblr_e9a0178c836ab965c132fefb4f4caa9c_296b77eb_400" src="https://github.com/user-attachments/assets/6262722a-d5e8-4808-996a-67abea32a2e2" />
+<img width="350" height="19" alt="tumblr_9b9c4fc56febb90550021a2796b987b3_fef44f4c_400" src="https://github.com/user-attachments/assets/3efc706b-c5fd-4789-8dc3-ba0f2e42950c" />  
 <img width="798" height="100" alt="image" src="https://github.com/user-attachments/assets/ea50ff84-3b49-44bc-a055-47d8b8d6aa3c" />
 
 <img width="800" height="450" alt="tumblr_72d7270636b4ec74aeb1018ba9c35653_20391b3f_1280" src="https://github.com/user-attachments/assets/f2371d93-03d4-42ed-bfb0-5e266b8a9ded" />
