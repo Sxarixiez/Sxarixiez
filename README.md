@@ -31,6 +31,7 @@
 [![65737b5d92b287322bab4e86a0af554b](https://github.com/user-attachments/assets/619c52f8-9430-480e-90b7-31ae622c2997)](https://xenoraxxiezzaboutme.carrd.co/)[![471db45c1b27558d587e07e0b7ece055](https://github.com/user-attachments/assets/92f26d5e-6680-4bbf-a4e7-6bd2e8fab446)](https://guns.lol/thelordsxarixiez)
 
 <img width="150" height="150" alt="tumblr_b6691bff776aa0db4aab93c249fca4e0_fa7ebd2c_1280" src="https://github.com/user-attachments/assets/ea24c840-bdea-4943-b3a0-9ba9c5c93e1f" />[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F72900&center=true&vCenter=true&width=435&lines=%22+%F0%9D%98%9B%F0%9D%99%83%F0%9D%98%8C+%F0%9D%98%BF%F0%9D%98%A6%F0%9D%99%AB%F0%9D%98%AA%F0%9D%99%A1+%F0%9D%98%8F%F0%9D%98%BC%F0%9D%98%9A+%F0%9D%98%BD%F0%9D%98%A6%F0%9D%99%9A%F0%9D%98%AF+%F0%9D%99%92%F0%9D%98%88%F0%9D%99%86%F0%9D%98%8C%F0%9D%99%89+%F0%9D%98%9C%F0%9D%99%A5!+%22)](https://git.io/typing-svg)
+<img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/38eb9e4d-7a83-46fc-b406-914fe3a36e1f" />
 <p align="center"> 
   <img width="498" height="281" alt="marvel-rivals-mr" src="https://github.com/user-attachments/assets/7dc4a46a-ab27-483d-b31d-ad1c75124934" /> 
   
