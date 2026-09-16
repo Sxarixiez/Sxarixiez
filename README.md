@@ -615,7 +615,7 @@
 </p>
 
 <p align="center">
-  <img width="545" height="217" alt="Ekran görüntüsü 2026-09-16 024749" src="https://github.com/user-attachments/assets/7b9c7bd7-2899-4d63-8d58-784798ac308d" />
+  <img width="542" height="215" alt="Ekran görüntüsü 2026-09-16 044236" src="https://github.com/user-attachments/assets/576f1b73-d8f5-4269-9bf2-9594ac44b36c" />
 </p>
 
 <p align="center">
