@@ -259,8 +259,6 @@
 <img width="498" height="190" alt="mankind-is-dead-blood-is-fuel" src="https://github.com/user-attachments/assets/3979ced1-544b-43e5-ada3-89d80e0b291d" />
 <img width="498" height="281" alt="neptune-solarballs" src="https://github.com/user-attachments/assets/6d8710d1-4416-4d8b-b8fc-fdc247461ac2" />
 
-![Static Badge](https://img.shields.io/badge/some%20of%20layouts%2C%20blinkies%2C%20dividers%2C%20graphics%20are%20not%20mine%20and%20their%20all%20from%20tumblr-green)
-
 <img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
 
 <img width="2047" height="660" alt="tumblr_2185395ee1a8fcfd83e3f08d8ad884a4_08edec68_2048" src="https://github.com/user-attachments/assets/084fbe98-5772-44bc-9973-a93c94fc07aa" />
