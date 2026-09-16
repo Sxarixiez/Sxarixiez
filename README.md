@@ -62,7 +62,11 @@
 <p align="center">
 <details>
   <summary>ᴡɪꜰᴇ ʀᴇᴠᴇᴀʟ</summary>
-  <p align="center"><img width="268" height="175" alt="tumblr_21f6641c03908b827cafa61ba88d7c87_bf5ac484_400" src="https://github.com/user-attachments/assets/c32c51b4-5d76-42f6-8da7-3f2eda8f8007" /><img width="1920" height="1080" alt="tumblr_493ff8a4bdf651c4ffd89bebf7361a34_64eb4734_2048" src="https://github.com/user-attachments/assets/e8822601-71a9-4136-94a6-88138a83b5ed" />
+  <p align="center"><img width="2048" height="2345" alt="tumblr_4acf865418dc6cb623781a41dbc99e3a_a7291764_2048" src="https://github.com/user-attachments/assets/35cac44e-b2cb-4b6f-ba64-2bafe084d258" />
+<img width="480" height="445" alt="magik-marvel-rivals" src="https://github.com/user-attachments/assets/4434bb2b-a898-4436-9cff-077b70627ff9" />
+<img width="640" height="256" alt="tumblr_f30a036a7ab1831de25b2fc31201be9e_a38f787a_640 (1)" src="https://github.com/user-attachments/assets/7d242c1e-c624-4e1e-9528-9c5da336af49" />
+<img width="736" height="414" alt="indir - 2026-09-16T053351 348" src="https://github.com/user-attachments/assets/b7e923d8-c846-4791-8e29-acb7cd5b2948" />
+<img width="736" height="414" alt="Magik (marvel tokon)" src="https://github.com/user-attachments/assets/e39596e7-a1c7-477e-a5f8-68635bae630c" /><img width="268" height="175" alt="tumblr_21f6641c03908b827cafa61ba88d7c87_bf5ac484_400" src="https://github.com/user-attachments/assets/c32c51b4-5d76-42f6-8da7-3f2eda8f8007" /><img width="1920" height="1080" alt="tumblr_493ff8a4bdf651c4ffd89bebf7361a34_64eb4734_2048" src="https://github.com/user-attachments/assets/e8822601-71a9-4136-94a6-88138a83b5ed" />
 <img width="2048" height="720" alt="tumblr_9d3cb83db6991e0c7c3047ce7b1242b2_c4341433_2048" src="https://github.com/user-attachments/assets/0cb7e06f-db48-48f8-88ad-80dea75d29b2" />
     </p>
 </details>
