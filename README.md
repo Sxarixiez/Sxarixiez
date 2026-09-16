@@ -130,6 +130,14 @@
 <img width="150" height="20" alt="tumblr_530cf2545a4be0b6ef236b700e3e36da_5089123e_250" src="https://github.com/user-attachments/assets/7c85016e-0bd4-4d97-86d3-62a6ec2d3206" /></p>
 </details>
 
+<p align="center">
+<details>
+  <summary>ᴍᴏʀᴇ ꜱʜɪᴛ!!1</summary>
+  <p align="center">
+    </p>
+</details>
+
+  
 <img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
 
 <img width="2048" height="1536" alt="tumblr_20985dcf7014835edb622eea55833dba_bab5eb78_2048" src="https://github.com/user-attachments/assets/a8e699d9-c8ae-49f0-8875-20a4d7921368" />
