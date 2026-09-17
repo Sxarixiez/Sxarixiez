@@ -23,6 +23,9 @@
 <img width="20" height="20" alt="tumblr_925a6eb5228c10789ad8550c30ec3de2_2f2735e0_75" src="https://github.com/user-attachments/assets/75e5c41c-61c1-44f7-96b8-323a50ba5605" />
 
 <p align="center">
+  <img width="477" height="100" alt="image" src="https://github.com/user-attachments/assets/73fbb0a9-e1ab-4da3-be00-8f0045882b1c" />
+</p> 
+<p align="center">
 𝙃𝙞 𝙄'𝙢 𝙎𝘾𝘼𝙍 / 𝙍𝙄𝙊𝙏 / 𝘾𝙊𝙕𝙈𝙊, 𝙢𝙞𝙡𝙚𝙨, 𝙚𝙙𝙜𝙚, 𝙢𝙞𝙡𝙡𝙚𝙧, 𝙖𝙧𝙖𝙘𝙝𝙣𝙖 𝙄 𝙝𝙖𝙫𝙚 𝙨𝙤 𝙢𝙖𝙣𝙮 𝙣𝙖𝙢𝙚𝙨 𝙘𝙖𝙡𝙡 𝙢𝙚 𝙬𝙝𝙖𝙩𝙚𝙫𝙚𝙧 𝙮𝙤𝙪 𝙬𝙖𝙣𝙩 𝙤𝙧 𝙗𝙪𝙧𝙖𝙠 𝙗𝙘𝙯 𝙄'𝙢 𝙛𝙧𝙤𝙢 𝙩𝙪𝙧𝙠𝙞𝙮𝙚  
 
 <p align="center">
@@ -446,12 +449,6 @@
 
 <img width="1280" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
 
-<p align="center">
-  <img width="477" height="100" alt="image" src="https://github.com/user-attachments/assets/73fbb0a9-e1ab-4da3-be00-8f0045882b1c" />
-</p> 
-
-![Static Badge](https://img.shields.io/badge/%22Curse%20this%20inferior%20dimension.%22-green)
-
 <img width="150" height="20" alt="tumblr_c3a825d2df91105347a7a944d379192f_1c019095_250" src="https://github.com/user-attachments/assets/7df94770-d636-4afa-9bbe-25598b7aa4c2" />
 <img width="150" height="20" alt="tumblr_97180ef550bcd4812564a2afacee4725_3e473857_250" src="https://github.com/user-attachments/assets/9c94ca3d-3df7-4405-ad42-7cccd95373ee" />
 <img width="1025" height="604" alt="tumblr_98d551e7d585eabfa93243b073b0a0dd_7610a92e_1280" src="https://github.com/user-attachments/assets/347dfcfb-4e4b-440c-a0f2-bbd39c2c4516" />
@@ -468,12 +465,9 @@
 <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/65e601dd-c0c9-4672-8e9b-e2bc821d8d5d" />
 <img width="1414" height="1414" alt="image" src="https://github.com/user-attachments/assets/6c59b4e6-c12b-4d9e-9510-2860bdbc0898" />
 <img width="720" height="1280" alt="image" src="https://github.com/user-attachments/assets/f153f5f5-93e1-4929-b3ca-ba5fbbd8bc80" />
-
 <img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
-
 <img width="2048" height="200" alt="tumblr_833c5c0557f22fe913ebba3cbbee74f3_64a541b2_2048" src="https://github.com/user-attachments/assets/88459a3b-4d8a-4183-8940-90938702b391" />
 <img width="1499" height="360" alt="image" src="https://github.com/user-attachments/assets/56bfbf1e-12c7-4ecf-9148-9ecb1ddfb635" />
-
 <img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=4606F7&center=true&vCenter=true&width=435&lines=ALSO+THANKS+%40yakultsson+FOR+THIS;ITS+MY+OC!!1)](https://git.io/typing-svg)
