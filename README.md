@@ -392,99 +392,9 @@
 ![Static Badge](https://img.shields.io/badge/Spoke%20MY%20BELOVED-green)![Static Badge](https://img.shields.io/badge/Spoke%20MY%20SILLY%20FAVORITE%20GOOBER-cyan)![Static Badge](https://img.shields.io/badge/Spoke..-blue)![Static Badge](https://img.shields.io/badge/THE%20SILLY%20ASS%20RAINBOW%20GOOBER%20STRIKES%20DOWN-purple)
 
 <img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
-
 <img width="800" height="838" alt="tumblr_ffad43fd885dd9f5603d1e5c47be78c1_b9f54aff_1280" src="https://github.com/user-attachments/assets/48459e5e-608d-4e2a-a86f-b81dc8fe0343" />
-
-
 <img width="1125" height="629" alt="tumblr_f1a79f72c1d733a73dc25d83151b16ff_adb2d7d8_1280" src="https://github.com/user-attachments/assets/b9181777-187a-4d9a-86be-9e267e74712d" /> 
-
-
-
 <img width="735" height="295" alt="tumblr_13235e3009ee58d4355c9c9f3dc95b7b_f400a6a3_1280" src="https://github.com/user-attachments/assets/809d855c-a86e-43f3-9faa-d8984d824504" />
-
-
-<img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
-
-<img width="735" height="400" alt="tumblr_d96406df48b1874bbe05f62079173cf1_273965d9_640" src="https://github.com/user-attachments/assets/00721ec0-dbce-4578-a4e9-109c12a865e4" />
-
-<img width="90" height="30" alt="tumblr_3a8174b8e523bba1ba33c1b598801da7_53b70456_1280" src="https://github.com/user-attachments/assets/8bcf44fd-f4f6-4d92-8454-fd050c1f8a68" />
-<img width="200" height="30" alt="tumblr_605e178c60a5aa989d5c7d15e3b07d40_0e577910_1280" src="https://github.com/user-attachments/assets/f3e88ccb-42e7-4ffd-928d-344e9e227042" />
-
-![Static Badge](https://img.shields.io/badge/killed%20individuals-600%2B-red)
-
-<img width="1499" height="60" alt="tumblr_a96517729232fd1e21bbc911a3e428c5_cb7e5325_640" src="https://github.com/user-attachments/assets/c7524ad7-d7f1-499d-9c76-3f468e0501c4" />
-
-<img width="99" height="56" alt="tumblr_9d6a481d8cc6891ecf38f0c5c4fda5a1_ba7f093b_100" src="https://github.com/user-attachments/assets/9e819523-b2c3-4e8e-8e31-5205d211fb69" />
-<img width="99" height="56" alt="tumblr_0a0bbd1074c28d4d1ce01f2ac3991f96_76f4e474_100" src="https://github.com/user-attachments/assets/cc41065d-188f-4e95-844c-bf362c6754f2" />
-<img width="99" height="56" alt="tumblr_9942d558b06384c19c743e339463177e_0f34b336_100" src="https://github.com/user-attachments/assets/7061d6c3-13e0-4c18-b528-1e6198081139" />
-
-![Static Badge](https://img.shields.io/badge/%E2%80%BC%EF%B8%8FKILLER%20SANS%20ROLEPLAY%20THINGY%E2%80%BC%EF%B8%8F(and%20if%20I%20roleplay%20as%20him)-black)
-
-![Static Badge](https://img.shields.io/badge/%F0%9F%A9%B8killer%2Fkillz%2Fkitty-red)
-
-![Static Badge](https://img.shields.io/badge/dni%20nightmarekiller%20shippers(thats%20too%20dark%20for%20me..)-red)
-
-![Static Badge](https://img.shields.io/badge/also%20you%20can%20int%20w%20me%20if%20youre%20a%20colorkiller%20shipper-red)
-
-![Static Badge](https://img.shields.io/badge/if%20ur%20roleplaying%20as%20one%20of%20badguys(horror%2Cdust%2Fmurder%20etc)%20you%20can%20c%2Bh%20w%20me%20freely-red)
-
-![Static Badge](https://img.shields.io/badge/in%20the%20roleplay%20do%20not%20get%20flirty%20w%20me%20as%20Im%20an%20aroace%20person-red)
-
-![Static Badge](https://img.shields.io/badge/I%20might%20get%20freaky%20sometimes%20so%20be%20cautioned%20w%20me%20..%20idk%20why%20Im%20writing%20we%20are%20roleplaying%20brah%20but%20yeah-red)
-
-<img width="1499" height="60" alt="tumblr_a96517729232fd1e21bbc911a3e428c5_cb7e5325_640" src="https://github.com/user-attachments/assets/c7524ad7-d7f1-499d-9c76-3f468e0501c4" />
-<img width="1640" height="856" alt="tumblr_cb58537bf0494ca2a24c3b213736d06d_1e3e2c9b_2048" src="https://github.com/user-attachments/assets/c99a1df5-c415-440a-ba38-c142677d20b8" />
-
-![Static Badge](https://img.shields.io/badge/this%20ones%20arent%20for%20roleplay%20just%20writing%20it%20..-red)
-
-![Static Badge](https://img.shields.io/badge/I%20LOVE%20KILLER%20SANS%20SO%20MUCH%20LIKE%20I%20WANNA%20LET%20HIM%20KILL%20ME%20OKAY...-red)
-
-![Static Badge](https://img.shields.io/badge/I%20JUST%20LOVE%20HIM%20SO%20MUCH%20ITS%20LIKE%20A%20OBSESSION%20I%20WANNA%20WRITE%20A%20FANFICTION%20JUST%20FOR%20HIM%20IM%20A%20MOTHERFUCKIN%20SIMP%20FOR%20HIM%20LIKE%20DUDE..%20DOSE%20DRIPPING%20BLACK%20HATE%20FROM%20THE%20EYES%20OH%20MY%20FUCKING%20GODD!!!-black)
-
-<img width="1499" height="60" alt="tumblr_a96517729232fd1e21bbc911a3e428c5_cb7e5325_640" src="https://github.com/user-attachments/assets/c7524ad7-d7f1-499d-9c76-3f468e0501c4" />
-
-<img width="800" height="321" alt="tumblr_5c8271a0aadee040cf765e4acc92748f_d4cda018_1280" src="https://github.com/user-attachments/assets/cf058cdf-d8a3-432f-aa16-2cb7fc3b46b2" />
-
-![Static Badge](https://img.shields.io/badge/other%20than%20that%20its%20okay%20to%20int%20freely%E2%80%BC%EF%B8%8F-black)
-
-![Static Badge](https://img.shields.io/badge/also%20read%20the%20%22protects%20this%20blog%22%20thingy%20and%20we're%20okay%20for%20the%20roleplay-black)
-
-
-
-<img width="700" height="170" alt="tumblr_4c5db76088cb42bb82292317dbd5d315_e217a598_1280" src="https://github.com/user-attachments/assets/81fb5de5-cefd-4e1a-a281-d286cef06c32" />
-<img width="1499" height="60" alt="tumblr_9961a204674f1c72e7af2725e336a066_589a7b0b_640" src="https://github.com/user-attachments/assets/2851d34c-2602-4cdb-bbd2-e64b2d3f781f" />
-
-<img width="1499" height="360" alt="image" src="https://github.com/user-attachments/assets/e95ba25d-5a5a-45a6-bd7b-ffea605edbbe" />
-
-
-![Static Badge](https://img.shields.io/badge/Gamzee%20Makara%20%F0%9F%A4%A1%20-purple)
-![Static Badge](https://img.shields.io/badge/Gamzee%20itself%20%F0%9F%A4%A1%20-purple)
-![Static Badge](https://img.shields.io/badge/whats%20a%20clown%20to%20ya%3F%20madafakaa!!1%20%F0%9F%A4%A1%20-purple)
-![Static Badge](https://img.shields.io/badge/pronouns%3A%20it%2Fhe%2Fxe%2Fxyr%2Fshe%2Fany%20%F0%9F%A4%A1%20-purple)
-
-
-<img width="1499" height="60" alt="tumblr_a96517729232fd1e21bbc911a3e428c5_cb7e5325_640" src="https://github.com/user-attachments/assets/c7524ad7-d7f1-499d-9c76-3f468e0501c4" />
-
-<img width="498" height="461" alt="tumblr_68420cc8c50df1d8f31e34f853b2e728_c4f0f8ed_500" src="https://github.com/user-attachments/assets/8e1a2fca-d132-4e6a-997d-80391dd07a18" />
-<img width="1000" height="218" alt="tumblr_a2497c975b878e4b0ac5bbc43b09a9ab_469ed4bd_1280" src="https://github.com/user-attachments/assets/4778d41c-fd26-4bbc-9e26-04b976cdf291" />
-<img width="947" height="218" alt="tumblr_2d1a124b8d8e6cade27bcce266d69caa_debe317c_1280" src="https://github.com/user-attachments/assets/d677a846-235e-4edb-b288-0af1727c2b4d" />
-<img width="99" height="56" alt="tumblr_040b279fc45eeee5e964ac60a7c96307_cfb67ddd_100" src="https://github.com/user-attachments/assets/991c2a4e-6321-40c3-90f6-94b8fc71ff9e" />
-<img width="99" height="56" alt="tumblr_019c261605412c1d8c65287fbe21e130_2a2f8279_100" src="https://github.com/user-attachments/assets/e8fae73c-9495-462a-bc65-a34fa3754158" />
-<img width="99" height="56" alt="tumblr_1df1fd0055aa4a3f267d22b3abaa0464_3e144cd9_100" src="https://github.com/user-attachments/assets/81d8dcbb-947e-49a2-8582-d226d934b5a1" />
-
-
-![Static Badge](https://img.shields.io/badge/SXARIXIEEZ!!1-SCAR%2FRIOT%2FCOZMO-red)
-![Static Badge](https://img.shields.io/badge/KILL%20COUNT-400%2B-yellow)
-![Static Badge](https://img.shields.io/badge/Slay%20Days-8000%2B-yellow)
-![Static Badge](https://img.shields.io/badge/CHAINSAW%20TIMEE-yellow)
-![Static Badge](https://img.shields.io/badge/THIS%20KIDDO%20IS%20IN%20THE%20TOXIC%20CESSPIT!!1-toxic%20green%20)
-![Static Badge](https://img.shields.io/badge/HEAVY%20SHARK%20AND%20CROCOALLIGATOR%20HYPERFIXATION-cyan%20)
-![Static Badge](https://img.shields.io/badge/THIS%20SILLY%20BOY%20CAN%20BITE%20PLEASE%20DO%20CAUTION-red)
-![Static Badge](https://img.shields.io/badge/%22Lowest%20body%20count%20eats%20a%20missile!%22-yellow)
-![Static Badge](https://img.shields.io/badge/Heavy%20INSANE%20CLOWN%20POSSE%20FAN!!1-black)
-
-
-
 <img width="736" height="414" alt="WhatsApp Image 2026-06-25 at 12 22 47 (15)" src="https://github.com/user-attachments/assets/14c99f66-620f-4cf2-9fa0-f7c474c96c0a" /> 
 <img width="58" height="18" alt="cae80663" src="https://github.com/user-attachments/assets/c123f720-b3d1-4977-b039-c70324de00c6" />
 <img width="20" height="20" alt="886c2fe0" src="https://github.com/user-attachments/assets/5de80f13-b868-4585-9147-f0cc42d44244" />
