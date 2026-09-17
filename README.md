@@ -180,6 +180,14 @@
 
 <p align="center">
 <details>
+  <summary>𝙈𝙀 𝘾𝙊𝙍𝙀!!</summary><img width="730" height="99" alt="image" src="https://github.com/user-attachments/assets/8bb95cc9-a20c-4ffb-a0b2-b0b8e6420ba3" />
+<img width="730" height="99" alt="image" src="https://github.com/user-attachments/assets/44cbadb7-81f0-4231-a54b-101250ac5e64" />
+<img width="66" height="31" alt="imvu-blinkies" src="https://github.com/user-attachments/assets/2825a3d7-a033-4f70-a06f-f6b45c1cd404" /> <img width="150" height="20" alt="glow-in-the-dark-glow" src="https://github.com/user-attachments/assets/ed772e22-d5ba-4c6e-b251-f860398fa1b0" /> <img width="150" height="20" alt="blinkies" src="https://github.com/user-attachments/assets/217e9fd7-0dfb-483e-a2b2-b51d71b2918f" /> <img width="177" height="32" alt="pizza-freak" src="https://github.com/user-attachments/assets/3fefebb6-a091-44f2-8975-0b588802178e" /><img width="498" height="95" alt="blinkie-blinkies" src="https://github.com/user-attachments/assets/f6bcfa0a-d9c8-49e4-96dd-e57458a1b235" /><img width="300" height="70" alt="blinkie-blinkies (1)" src="https://github.com/user-attachments/assets/e969f22a-dd0e-401d-951e-60bdaca5fd1b" /><img width="300" height="70" alt="hatsune-miku-vocaloid" src="https://github.com/user-attachments/assets/94301093-db65-4218-a646-a9a9acf132c1" /><img width="150" height="20" alt="blinkies-blinkie" src="https://github.com/user-attachments/assets/fee547fa-073b-4103-8de9-7d2db132fe3a" /><img width="150" height="20" alt="science-science-lover" src="https://github.com/user-attachments/assets/0c7856ea-1265-4bcd-a42a-2b267cb7892e" /><img width="498" height="67" alt="blinkies (5)" src="https://github.com/user-attachments/assets/cf6d9bcd-7780-4c0b-a4ab-7235181e8332" />
+    </p>
+</details>
+
+<p align="center">
+<details>
   <summary>ᴡɪꜰᴇ ʀᴇᴠᴇᴀʟ</summary>
   <p align="center"><img width="2048" height="2345" alt="tumblr_4acf865418dc6cb623781a41dbc99e3a_a7291764_2048" src="https://github.com/user-attachments/assets/35cac44e-b2cb-4b6f-ba64-2bafe084d258" />
 <img width="480" height="445" alt="magik-marvel-rivals" src="https://github.com/user-attachments/assets/4434bb2b-a898-4436-9cff-077b70627ff9" />
@@ -378,13 +386,6 @@
 <img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/9fc729e2-db24-41ad-8ca1-13370733bdd2" />
 <img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/abc17c2e-39cd-4c36-b978-63c2e0d1c5fe" /> 
 <img width="1280" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
-<p align="center">
-<details>
-  <summary>𝙈𝙀 𝘾𝙊𝙍𝙀!!</summary><img width="730" height="99" alt="image" src="https://github.com/user-attachments/assets/8bb95cc9-a20c-4ffb-a0b2-b0b8e6420ba3" />
-<img width="730" height="99" alt="image" src="https://github.com/user-attachments/assets/44cbadb7-81f0-4231-a54b-101250ac5e64" />
-<img width="66" height="31" alt="imvu-blinkies" src="https://github.com/user-attachments/assets/2825a3d7-a033-4f70-a06f-f6b45c1cd404" /> <img width="150" height="20" alt="glow-in-the-dark-glow" src="https://github.com/user-attachments/assets/ed772e22-d5ba-4c6e-b251-f860398fa1b0" /> <img width="150" height="20" alt="blinkies" src="https://github.com/user-attachments/assets/217e9fd7-0dfb-483e-a2b2-b51d71b2918f" /> <img width="177" height="32" alt="pizza-freak" src="https://github.com/user-attachments/assets/3fefebb6-a091-44f2-8975-0b588802178e" /><img width="498" height="95" alt="blinkie-blinkies" src="https://github.com/user-attachments/assets/f6bcfa0a-d9c8-49e4-96dd-e57458a1b235" /><img width="300" height="70" alt="blinkie-blinkies (1)" src="https://github.com/user-attachments/assets/e969f22a-dd0e-401d-951e-60bdaca5fd1b" /><img width="300" height="70" alt="hatsune-miku-vocaloid" src="https://github.com/user-attachments/assets/94301093-db65-4218-a646-a9a9acf132c1" /><img width="150" height="20" alt="blinkies-blinkie" src="https://github.com/user-attachments/assets/fee547fa-073b-4103-8de9-7d2db132fe3a" /><img width="150" height="20" alt="science-science-lover" src="https://github.com/user-attachments/assets/0c7856ea-1265-4bcd-a42a-2b267cb7892e" /><img width="498" height="67" alt="blinkies (5)" src="https://github.com/user-attachments/assets/cf6d9bcd-7780-4c0b-a4ab-7235181e8332" />
-    </p>
-</details>
 
 <p align="center">
   <img width="498" height="281" alt="silver-wolf-honkai-star-rail" src="https://github.com/user-attachments/assets/1c2703a0-7e35-4160-8273-4daab4ae8346" />
