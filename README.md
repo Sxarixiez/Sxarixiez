@@ -386,13 +386,11 @@
 <img width="1280" height="511" alt="tumblr_5e9be6cf190dbea3b80731cf356e8993_751d2c0c_1280" src="https://github.com/user-attachments/assets/132578b9-b8c2-4ee7-970a-99aca25349c8" />
 <img width="2048" height="805" alt="tumblr_32627a53c24e51b93bb695ca2be6c3d2_53734cd1_2048" src="https://github.com/user-attachments/assets/86abe660-a2a5-4916-bfe3-0495d61c1171" /> 
 
-
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F75301&center=true&vCenter=true&width=435&lines=SPOKE+IS+HERE!!1)](https://git.io/typing-svg)
 <img width="1000" height="1000" alt="tumblr_12d348893b52f6f099257e734318a999_cd5e9df7_1280" src="https://github.com/user-attachments/assets/f2ba61af-2deb-4d43-bd12-23ce0c56b3b9" />
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F75301&center=true&vCenter=true&width=435&lines=I'M+A+CRAZY+ASS+TEENAGER+;GET+OUT+OF+MY+PAGE+%2Fj)](https://git.io/typing-svg)
 <img width="600" height="80" alt="tumblr_e3915d8ea18805a4fb68827976cf73ac_913032ff_640" src="https://github.com/user-attachments/assets/e8fdf64f-8c1d-49c2-9f4e-a74caaba0876" />
 <img width="600" height="80" alt="tumblr_e7d69b4774d190f3f19cfbbf43b8ab68_1aca2cb8_640" src="https://github.com/user-attachments/assets/7b06e2ac-246a-4a71-8f82-a53946328f5c" />  
-
 
 <img width="99" height="100" alt="spoke-spokeishere" src="https://github.com/user-attachments/assets/5b4236a1-a4cb-4575-b2e1-2a0c2be7f843" />![Static Badge](https://img.shields.io/badge/I'M%20A%20HEAVY%20SPOKE%20FICTIONKIN%20NOW!!-red)
 ![Static Badge](https://img.shields.io/badge/Spoke%20Fictionkin-yellow)
@@ -406,12 +404,6 @@
  
 ![Static Badge](https://img.shields.io/badge/%22%20A%20n%20d%20y%20e%20t%20%2C%20I%20s%20t%20i%20l%20l%20f%20e%20e%20l%20n%20o%20t%20h%20i%20n%20g%20.%20%22-yellow)
 
-
-<img width="1000" height="243" alt="image" src="https://github.com/user-attachments/assets/100192bb-eee0-4435-8612-f3a1168bb24d" />
-<img width="480" height="20" alt="divider (1)" src="https://github.com/user-attachments/assets/15440338-8a4d-45ca-8a7e-5a09a22bc1d5" />
-<img width="20" height="20" alt="93047aba" src="https://github.com/user-attachments/assets/c808aa10-883b-4221-bf8a-58356e61aa4c" />
-<img width="20" height="20" alt="c435c95b" src="https://github.com/user-attachments/assets/6e50ad48-79a6-4461-9d67-71edbf9b0276" />
-<img width="20" height="20" alt="42be643a" src="https://github.com/user-attachments/assets/02d6f8c1-8cc6-4902-bf57-d73f81fba64c" />
 <img width="150" height="20" alt="tumblr_6d51dbbd0b8d44374f09a5d80c6c074f_ce77647d_250" src="https://github.com/user-attachments/assets/97b688a9-336c-42b0-b184-ed8d5e64dd37" />
 <img width="150" height="20" alt="tumblr_f405f6b27ce0d23116b89243bc5210db_c2cd1926_250" src="https://github.com/user-attachments/assets/e0772b04-e648-4488-86f6-1c9ffb918a67" />
 <img width="736" height="737" alt="image" src="https://github.com/user-attachments/assets/f1f87771-12b5-4ba9-9d04-3909e1ff70d5" /> 
