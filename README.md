@@ -296,7 +296,6 @@
 <img width="150" height="20" alt="tumblr_d14d782b0d2a45a4a130785982b92258_4bba10aa_250" src="https://github.com/user-attachments/assets/a041d193-53d7-4a6c-bab1-cef4f96c7aa3" />
     </p>
 </details>
-
   
 <img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
 
@@ -355,8 +354,6 @@
 <p align="center">  
   <img width="498" height="281" alt="neptune-solarballs" src="https://github.com/user-attachments/assets/6d8710d1-4416-4d8b-b8fc-fdc247461ac2" />
 </p> 
-
-<img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
 
 <img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
 
