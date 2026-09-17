@@ -48,6 +48,9 @@
 <p align="center"> 
 - (●'◡'●) 𝙄𝙈 𝙎𝙋𝙊𝙊𝙆𝙀𝙀 𝙐𝙉𝙎𝙏𝘼𝘽𝙇𝙀𝙀𝙀 <img width="20" height="20" alt="c06f33a3" src="https://github.com/user-attachments/assets/c683339f-4adf-4044-9bc8-cee5d130dad9" /><img width="20" height="20" alt="f9d79ff2" src="https://github.com/user-attachments/assets/c5d61602-1ef8-4844-bf00-53bf4ca247bb" />
 <img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/38eb9e4d-7a83-46fc-b406-914fe3a36e1f" />
+<img width="150" height="20" alt="blinkies (3)" src="https://github.com/user-attachments/assets/e9c71008-572c-446b-90b0-f5aec58d88d1" />
+<img width="150" height="20" alt="blinkies (4)" src="https://github.com/user-attachments/assets/51b6fc18-ad9e-4711-9637-84e914fec0c5" />
+<img width="150" height="20" alt="beetles-blinkie" src="https://github.com/user-attachments/assets/c1b2f37b-ab0a-4431-9701-1fdcea91f168" />
 <img width="150" height="20" alt="tumblr_f25e8c8f9634a5cc987ace8bdb785b14_5cb7fd8a_250" src="https://github.com/user-attachments/assets/cf93f702-6b24-43d1-8e20-efc1f7e75c7b" />
 <img width="150" height="20" alt="tumblr_f1ff9718f9a3e13f44952f7f04757a65_8b6a6703_250" src="https://github.com/user-attachments/assets/db97db88-1876-4261-bfee-a9925dd586aa" /><img width="150" height="20" alt="blinkie-tf2 (1)" src="https://github.com/user-attachments/assets/c4c255eb-9dd5-4bfc-9fec-e2ea07ac473d" />
 <img width="150" height="20" alt="petscop-petscop-paul" src="https://github.com/user-attachments/assets/b4cf5f18-addb-4998-8ee9-b32ca6fbb357" />
@@ -340,9 +343,6 @@
   [![Typing SVG](https://readme-typing-svg.demolab.com?font=sans&pause=1000&color=005A9E&width=435&lines=%22Heh.+I+think+I+have...+just+the+one.%22)](https://git.io/typing-svg)
   <img width="150" height="150" alt="tumblr_90e2d97c70d8122600d6ae8e7fe59cd2_bbcc0fa0_400" src="https://github.com/user-attachments/assets/0a1fe6fa-49ef-4fa7-9f3c-a6732eb118e4" />
 </p>
-<img width="150" height="20" alt="blinkies (3)" src="https://github.com/user-attachments/assets/e9c71008-572c-446b-90b0-f5aec58d88d1" />
-<img width="150" height="20" alt="blinkies (4)" src="https://github.com/user-attachments/assets/51b6fc18-ad9e-4711-9637-84e914fec0c5" />
-<img width="150" height="20" alt="beetles-blinkie" src="https://github.com/user-attachments/assets/c1b2f37b-ab0a-4431-9701-1fdcea91f168" />
 <img width="396" height="40" alt="they-them" src="https://github.com/user-attachments/assets/c5e5143e-6337-4aea-a3ad-fc3269f04d45" />
 <img width="1280" height="720" alt="tumblr_95c9bf94e99530170b5ad741cd24b316_1f518497_1280" src="https://github.com/user-attachments/assets/9c844d24-d313-4009-ba8a-97418df1ce40" />
 <img width="960" height="540" alt="tumblr_4221e42865bbaab0a7336d7d561835cf_56d000af_1280" src="https://github.com/user-attachments/assets/0ab5d33d-dc2f-4038-b60c-295211e9e9c1" />
