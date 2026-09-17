@@ -21,6 +21,17 @@
 <img width="83" height="18" alt="tumblr_f38a4ab4e3607164df2f69fabed25b36_77718939_100" src="https://github.com/user-attachments/assets/6279c508-c4ef-440f-b10d-7acbe97158c9" />
 <img width="20" height="20" alt="tumblr_d5c5bf22f94a66dbb0bb9a3731a876d4_e473355c_75" src="https://github.com/user-attachments/assets/74f2d7b1-56b1-44ca-b9bd-55cdd7add4d1" />
 <img width="20" height="20" alt="tumblr_925a6eb5228c10789ad8550c30ec3de2_2f2735e0_75" src="https://github.com/user-attachments/assets/75e5c41c-61c1-44f7-96b8-323a50ba5605" />
+
+𝙃𝙞 𝙄'𝙢 𝙎𝘾𝘼𝙍 / 𝙍𝙄𝙊𝙏 / 𝘾𝙊𝙕𝙈𝙊, 𝙢𝙞𝙡𝙚𝙨, 𝙚𝙙𝙜𝙚, 𝙢𝙞𝙡𝙡𝙚𝙧, 𝙖𝙧𝙖𝙘𝙝𝙣𝙖 𝙄 𝙝𝙖𝙫𝙚 𝙨𝙤 𝙢𝙖𝙣𝙮 𝙣𝙖𝙢𝙚𝙨 𝙘𝙖𝙡𝙡 𝙢𝙚 𝙬𝙝𝙖𝙩𝙚𝙫𝙚𝙧 𝙮𝙤𝙪 𝙬𝙖𝙣𝙩 𝙤𝙧 𝙗𝙪𝙧𝙖𝙠 𝙗𝙘𝙯 𝙄'𝙢 𝙛𝙧𝙤𝙢 𝙩𝙪𝙧𝙠𝙞𝙮𝙚  
+
+𝙀𝙉𝙏𝙋 | 𝙘𝙪𝙧𝙧𝙚𝙣𝙩 𝙘𝙤𝙢𝙛𝙤𝙧𝙩 𝙛𝙖𝙣𝙙𝙤𝙢𝙨; 𝙪𝙡𝙩𝙧𝙖𝙠𝙞𝙡𝙡, 𝙪𝙣𝙙𝙚𝙧𝙩𝙖𝙡𝙚/𝙙𝙚𝙡𝙩𝙖𝙧𝙪𝙣𝙚, 𝙥𝙨𝙮𝙘𝙝𝙤𝙥𝙤𝙢𝙥, 𝙘𝙧𝙠, 𝙨𝙖𝙡𝙡𝙮 𝙛𝙖𝙘𝙚, 𝙢𝙪𝙧𝙙𝙚𝙧 𝙙𝙧𝙤𝙣𝙚𝙨, 𝙩𝙖𝙙𝙘 | 𝙂𝙖𝙢𝙯𝙚𝙚 𝙈𝙖𝙠𝙖𝙧𝙖, 𝘽𝙡𝙪𝙪𝙙𝙪𝙙, 𝘾00𝙡𝙠𝙞𝙙𝙙, 𝙋𝙧3𝙩𝙮𝙥𝙧𝙞𝙞𝙣𝙘𝙚𝙨𝙨, 𝙂𝙪𝙞𝙩𝙖, 𝙍𝙪𝙙𝙤, 𝙁𝙧𝙞𝙨𝙠, 𝘾𝙝𝙖𝙧𝙖 𝙖𝙧𝙚 𝙢𝙮 𝙛𝙞𝙘𝙩𝙞𝙤𝙣𝙖𝙡 𝙘𝙝𝙞𝙡𝙙𝙧𝙚𝙣  
+
+𝙢𝙪𝙡𝙩𝙞𝙛𝙖𝙣𝙙𝙤𝙢𝙚𝙧 + 𝙖𝙪𝙩𝙞𝙨𝙩𝙞𝙘 + 𝙝𝙖𝙨 𝙖𝙙𝙝𝙙 + 𝙝𝙚/𝙝𝙞𝙢/𝙖𝙡𝙡/𝙨𝙝𝙚/𝙝𝙚𝙧/𝙩𝙝𝙚𝙮/𝙩𝙝𝙚𝙢/𝙭𝙚/𝙭𝙚𝙢/𝙭𝙮𝙧 + 𝙖𝙧𝙤𝙖𝙘𝙚 (𝙖𝙧𝙤𝙢𝙖𝙣𝙩𝙞𝙘 𝙖𝙨𝙚𝙭𝙪𝙖𝙡)
+
+𝙎𝙥𝙤𝙠𝙚𝙄𝙨𝙃𝙚𝙧𝙚, 𝙎𝙪𝙗𝙨𝙥𝙖𝙘𝙚 𝙏𝙧𝙞𝙥𝙢𝙞𝙣𝙚, 𝙎𝙪𝙧𝙜𝙚 𝙏𝙝𝙚 𝙏𝙚𝙣𝙧𝙚𝙘, 𝙂𝙖𝙢𝙯𝙚𝙚 𝙈𝙖𝙠𝙖𝙧𝙖, 𝙆𝙞𝙡𝙡𝙚𝙧! 𝙎𝙖𝙣𝙨, 𝙔𝙄 𝙓𝙄, 𝙂𝙧𝙞𝙚𝙛𝙚𝙧, 𝙂𝙣𝙖𝙧𝙥𝙮 𝙁𝙞𝙘𝙩𝙞𝙤𝙣𝙠𝙞𝙣
+
+𝐈'𝐦 𝐧𝐨𝐭 𝐢𝐧𝐭𝐞𝐫𝐚𝐜𝐭𝐢𝐧𝐠 𝐰𝐢𝐭𝐡 𝐭𝐡𝐞 𝐡𝐚𝐳𝐛𝐢𝐧/𝐡𝐞𝐥𝐥𝐮𝐯𝐚 , 𝐝𝐢𝐠𝐢𝐭𝐚𝐥 𝐜𝐢𝐫𝐜𝐮𝐬, 𝐝𝐚𝐧𝐝𝐲'𝐬 𝐰𝐨𝐫𝐥𝐝, 𝐟𝐨𝐫𝐬𝐚𝐤𝐞𝐧 𝐟𝐚𝐧𝐝𝐨𝐦 𝐢𝐟 𝐲𝐨𝐮 𝐚𝐬𝐤 𝐚𝐧𝐝 𝐈 𝐝𝐨𝐧𝐭 𝐬𝐮𝐩𝐩𝐨𝐫𝐭 𝐯𝐢𝐯𝐳𝐢𝐞 𝐢𝐧 𝐚𝐧𝐲 𝐰𝐚𝐲 𝐈 𝐣𝐮𝐬𝐭 𝐥𝐨𝐯𝐞 𝐯𝐨𝐱 𝐩𝐥𝐞𝐚𝐬𝐞 
+
 <img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/38eb9e4d-7a83-46fc-b406-914fe3a36e1f" />
 <img width="350" height="19" alt="tumblr_e9a0178c836ab965c132fefb4f4caa9c_296b77eb_400" src="https://github.com/user-attachments/assets/6262722a-d5e8-4808-996a-67abea32a2e2" />
 <img width="350" height="19" alt="tumblr_9b9c4fc56febb90550021a2796b987b3_fef44f4c_400" src="https://github.com/user-attachments/assets/3efc706b-c5fd-4789-8dc3-ba0f2e42950c" />  
@@ -513,25 +524,6 @@
 
 <img width="150" height="20" alt="tumblr_c3a825d2df91105347a7a944d379192f_1c019095_250" src="https://github.com/user-attachments/assets/7df94770-d636-4afa-9bbe-25598b7aa4c2" />
 <img width="150" height="20" alt="tumblr_97180ef550bcd4812564a2afacee4725_3e473857_250" src="https://github.com/user-attachments/assets/9c94ca3d-3df7-4405-ad42-7cccd95373ee" />
-
-<p align="center">
-  <img width="426" height="70" alt="tumblr_619608ccfddc54f1c2d2cfc7c6203ede_3a018de4_500" src="https://github.com/user-attachments/assets/4ab58c8a-789b-4bdb-a352-2c45f22389da" />
-</p>
-
-<p align="center">
-  <img width="400" height="225" alt="zenless-zenless-zone-zero" src="https://github.com/user-attachments/assets/8b61039e-f283-44a9-815b-1f5683298088" />
-</p>
-
-𝙃𝙞 𝙄'𝙢 𝙎𝘾𝘼𝙍 / 𝙍𝙄𝙊𝙏 / 𝘾𝙊𝙕𝙈𝙊, 𝙢𝙞𝙡𝙚𝙨, 𝙚𝙙𝙜𝙚, 𝙢𝙞𝙡𝙡𝙚𝙧, 𝙖𝙧𝙖𝙘𝙝𝙣𝙖 𝙄 𝙝𝙖𝙫𝙚 𝙨𝙤 𝙢𝙖𝙣𝙮 𝙣𝙖𝙢𝙚𝙨 𝙘𝙖𝙡𝙡 𝙢𝙚 𝙬𝙝𝙖𝙩𝙚𝙫𝙚𝙧 𝙮𝙤𝙪 𝙬𝙖𝙣𝙩 𝙤𝙧 𝙗𝙪𝙧𝙖𝙠 𝙗𝙘𝙯 𝙄'𝙢 𝙛𝙧𝙤𝙢 𝙩𝙪𝙧𝙠𝙞𝙮𝙚  
-
-𝙀𝙉𝙏𝙋 | 𝙘𝙪𝙧𝙧𝙚𝙣𝙩 𝙘𝙤𝙢𝙛𝙤𝙧𝙩 𝙛𝙖𝙣𝙙𝙤𝙢𝙨; 𝙪𝙡𝙩𝙧𝙖𝙠𝙞𝙡𝙡, 𝙪𝙣𝙙𝙚𝙧𝙩𝙖𝙡𝙚/𝙙𝙚𝙡𝙩𝙖𝙧𝙪𝙣𝙚, 𝙥𝙨𝙮𝙘𝙝𝙤𝙥𝙤𝙢𝙥, 𝙘𝙧𝙠, 𝙨𝙖𝙡𝙡𝙮 𝙛𝙖𝙘𝙚, 𝙢𝙪𝙧𝙙𝙚𝙧 𝙙𝙧𝙤𝙣𝙚𝙨, 𝙩𝙖𝙙𝙘 | 𝙂𝙖𝙢𝙯𝙚𝙚 𝙈𝙖𝙠𝙖𝙧𝙖, 𝘽𝙡𝙪𝙪𝙙𝙪𝙙, 𝘾00𝙡𝙠𝙞𝙙𝙙, 𝙋𝙧3𝙩𝙮𝙥𝙧𝙞𝙞𝙣𝙘𝙚𝙨𝙨, 𝙂𝙪𝙞𝙩𝙖, 𝙍𝙪𝙙𝙤, 𝙁𝙧𝙞𝙨𝙠, 𝘾𝙝𝙖𝙧𝙖 𝙖𝙧𝙚 𝙢𝙮 𝙛𝙞𝙘𝙩𝙞𝙤𝙣𝙖𝙡 𝙘𝙝𝙞𝙡𝙙𝙧𝙚𝙣  
-
-𝙢𝙪𝙡𝙩𝙞𝙛𝙖𝙣𝙙𝙤𝙢𝙚𝙧 + 𝙖𝙪𝙩𝙞𝙨𝙩𝙞𝙘 + 𝙝𝙖𝙨 𝙖𝙙𝙝𝙙 + 𝙝𝙚/𝙝𝙞𝙢/𝙖𝙡𝙡/𝙨𝙝𝙚/𝙝𝙚𝙧/𝙩𝙝𝙚𝙮/𝙩𝙝𝙚𝙢/𝙭𝙚/𝙭𝙚𝙢/𝙭𝙮𝙧 + 𝙖𝙧𝙤𝙖𝙘𝙚 (𝙖𝙧𝙤𝙢𝙖𝙣𝙩𝙞𝙘 𝙖𝙨𝙚𝙭𝙪𝙖𝙡)
-
-𝙎𝙥𝙤𝙠𝙚𝙄𝙨𝙃𝙚𝙧𝙚, 𝙎𝙪𝙗𝙨𝙥𝙖𝙘𝙚 𝙏𝙧𝙞𝙥𝙢𝙞𝙣𝙚, 𝙎𝙪𝙧𝙜𝙚 𝙏𝙝𝙚 𝙏𝙚𝙣𝙧𝙚𝙘, 𝙂𝙖𝙢𝙯𝙚𝙚 𝙈𝙖𝙠𝙖𝙧𝙖, 𝙆𝙞𝙡𝙡𝙚𝙧! 𝙎𝙖𝙣𝙨, 𝙔𝙄 𝙓𝙄, 𝙂𝙧𝙞𝙚𝙛𝙚𝙧, 𝙂𝙣𝙖𝙧𝙥𝙮 𝙁𝙞𝙘𝙩𝙞𝙤𝙣𝙠𝙞𝙣
-
-𝐈'𝐦 𝐧𝐨𝐭 𝐢𝐧𝐭𝐞𝐫𝐚𝐜𝐭𝐢𝐧𝐠 𝐰𝐢𝐭𝐡 𝐭𝐡𝐞 𝐡𝐚𝐳𝐛𝐢𝐧/𝐡𝐞𝐥𝐥𝐮𝐯𝐚 , 𝐝𝐢𝐠𝐢𝐭𝐚𝐥 𝐜𝐢𝐫𝐜𝐮𝐬, 𝐝𝐚𝐧𝐝𝐲'𝐬 𝐰𝐨𝐫𝐥𝐝, 𝐟𝐨𝐫𝐬𝐚𝐤𝐞𝐧 𝐟𝐚𝐧𝐝𝐨𝐦 𝐢𝐟 𝐲𝐨𝐮 𝐚𝐬𝐤 𝐚𝐧𝐝 𝐈 𝐝𝐨𝐧𝐭 𝐬𝐮𝐩𝐩𝐨𝐫𝐭 𝐯𝐢𝐯𝐳𝐢𝐞 𝐢𝐧 𝐚𝐧𝐲 𝐰𝐚𝐲 𝐈 𝐣𝐮𝐬𝐭 𝐥𝐨𝐯𝐞 𝐯𝐨𝐱 𝐩𝐥𝐞𝐚𝐬𝐞 
-
 <img width="1025" height="604" alt="tumblr_98d551e7d585eabfa93243b073b0a0dd_7610a92e_1280" src="https://github.com/user-attachments/assets/347dfcfb-4e4b-440c-a0f2-bbd39c2c4516" />
 <img width="698" height="689" alt="tumblr_9fa83d4b86752b01528c7edafb1c3184_91dd2055_1280" src="https://github.com/user-attachments/assets/b2b569d0-d997-461a-90e5-78021b4c7ac6" />
 
