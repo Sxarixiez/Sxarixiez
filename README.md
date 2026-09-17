@@ -48,7 +48,7 @@
 - 👽 𝙄'𝙢 𝙬𝙚𝙞𝙧𝙙 𝙖𝙣𝙙 𝙩𝙝𝙖𝙩𝙨 𝙤𝙠𝙖𝙮 <img width="20" height="20" alt="tumblr_8f8e18e4bfa218b754de25619f35dfb2_2e46b69b_75" src="https://github.com/user-attachments/assets/8eb1914b-1bea-46d7-a389-9114bcb02646" />
 <p align="center"> 
 - (●'◡'●) 𝙄𝙈 𝙎𝙋𝙊𝙊𝙆𝙀𝙀 𝙐𝙉𝙎𝙏𝘼𝘽𝙇𝙀𝙀𝙀 <img width="32" height="34" alt="1d3d0c12" src="https://github.com/user-attachments/assets/29fe1208-f453-4b86-9288-01228c61b995" /><img width="20" height="20" alt="17fc9392" src="https://github.com/user-attachments/assets/8cbfdd10-ac82-440f-a52b-859afcfe2cb9" /><img width="20" height="20" alt="c06f33a3" src="https://github.com/user-attachments/assets/c683339f-4adf-4044-9bc8-cee5d130dad9" /><img width="20" height="20" alt="f9d79ff2" src="https://github.com/user-attachments/assets/c5d61602-1ef8-4844-bf00-53bf4ca247bb" />
-
+<img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/38eb9e4d-7a83-46fc-b406-914fe3a36e1f" />
 <img width="150" height="20" alt="tumblr_f25e8c8f9634a5cc987ace8bdb785b14_5cb7fd8a_250" src="https://github.com/user-attachments/assets/cf93f702-6b24-43d1-8e20-efc1f7e75c7b" />
 <img width="150" height="20" alt="tumblr_f1ff9718f9a3e13f44952f7f04757a65_8b6a6703_250" src="https://github.com/user-attachments/assets/db97db88-1876-4261-bfee-a9925dd586aa" /><img width="150" height="20" alt="blinkie-tf2 (1)" src="https://github.com/user-attachments/assets/c4c255eb-9dd5-4bfc-9fec-e2ea07ac473d" />
 <img width="150" height="20" alt="petscop-petscop-paul" src="https://github.com/user-attachments/assets/b4cf5f18-addb-4998-8ee9-b32ca6fbb357" />
