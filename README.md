@@ -392,7 +392,6 @@
 ![Static Badge](https://img.shields.io/badge/Spoke%20MY%20BELOVED-green)![Static Badge](https://img.shields.io/badge/Spoke%20MY%20SILLY%20FAVORITE%20GOOBER-cyan)![Static Badge](https://img.shields.io/badge/Spoke..-blue)![Static Badge](https://img.shields.io/badge/THE%20SILLY%20ASS%20RAINBOW%20GOOBER%20STRIKES%20DOWN-purple)
 
 <img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
-<img width="800" height="838" alt="tumblr_ffad43fd885dd9f5603d1e5c47be78c1_b9f54aff_1280" src="https://github.com/user-attachments/assets/48459e5e-608d-4e2a-a86f-b81dc8fe0343" />
 <img width="1125" height="629" alt="tumblr_f1a79f72c1d733a73dc25d83151b16ff_adb2d7d8_1280" src="https://github.com/user-attachments/assets/b9181777-187a-4d9a-86be-9e267e74712d" /> 
 <img width="735" height="295" alt="tumblr_13235e3009ee58d4355c9c9f3dc95b7b_f400a6a3_1280" src="https://github.com/user-attachments/assets/809d855c-a86e-43f3-9faa-d8984d824504" />
 <img width="736" height="414" alt="WhatsApp Image 2026-06-25 at 12 22 47 (15)" src="https://github.com/user-attachments/assets/14c99f66-620f-4cf2-9fa0-f7c474c96c0a" /> 
