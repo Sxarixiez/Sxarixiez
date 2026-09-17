@@ -96,7 +96,10 @@
 <img width="150" height="20" alt="tumblr_8c98ff737c89bbf51163d8447b14f874_d5734d72_250" src="https://github.com/user-attachments/assets/cccf9bac-5bd9-4658-b874-7764d9581f4e" />
 <img width="150" height="20" alt="tumblr_afe61026c67b82a5970aab5f3cb3ebbd_d38df722_250" src="https://github.com/user-attachments/assets/ae386945-4852-41a2-af70-2598c7a59f8b" />
 <img width="150" height="20" alt="tumblr_2700808b239a8e722cb9776be3fd659a_ab00b442_250" src="https://github.com/user-attachments/assets/c0e3fb34-a29b-4d0f-a622-4a271544b98f" />
-
+<img width="150" height="20" alt="tumblr_6d51dbbd0b8d44374f09a5d80c6c074f_ce77647d_250" src="https://github.com/user-attachments/assets/97b688a9-336c-42b0-b184-ed8d5e64dd37" />
+<img width="150" height="20" alt="tumblr_f405f6b27ce0d23116b89243bc5210db_c2cd1926_250" src="https://github.com/user-attachments/assets/e0772b04-e648-4488-86f6-1c9ffb918a67" />
+<img width="150" height="20" alt="tumblr_c3a825d2df91105347a7a944d379192f_1c019095_250" src="https://github.com/user-attachments/assets/7df94770-d636-4afa-9bbe-25598b7aa4c2" />
+<img width="150" height="20" alt="tumblr_97180ef550bcd4812564a2afacee4725_3e473857_250" src="https://github.com/user-attachments/assets/9c94ca3d-3df7-4405-ad42-7cccd95373ee" />
 <img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=wh95bd2d2nzt9nw0o7ozlsule&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)<img width="150" height="150" alt="ena-ena-dream-bbq" src="https://github.com/user-attachments/assets/055e9a36-9acd-4110-97c2-455aa5868533" />  <img width="90" height="90" alt="jevil-delatrune" src="https://github.com/user-attachments/assets/b1fca7f8-2bbf-46fd-b90a-b1b80f2a3cd9" /><img width="90" height="90" alt="deltarune-susie" src="https://github.com/user-attachments/assets/8269458c-de58-4e3c-8774-6b9bb36ea79c" />
@@ -369,8 +372,6 @@
  
 ![Static Badge](https://img.shields.io/badge/%22%20A%20n%20d%20y%20e%20t%20%2C%20I%20s%20t%20i%20l%20l%20f%20e%20e%20l%20n%20o%20t%20h%20i%20n%20g%20.%20%22-yellow)
 
-<img width="150" height="20" alt="tumblr_6d51dbbd0b8d44374f09a5d80c6c074f_ce77647d_250" src="https://github.com/user-attachments/assets/97b688a9-336c-42b0-b184-ed8d5e64dd37" />
-<img width="150" height="20" alt="tumblr_f405f6b27ce0d23116b89243bc5210db_c2cd1926_250" src="https://github.com/user-attachments/assets/e0772b04-e648-4488-86f6-1c9ffb918a67" />
 <img width="736" height="737" alt="image" src="https://github.com/user-attachments/assets/f1f87771-12b5-4ba9-9d04-3909e1ff70d5" /> 
 <img width="1280" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
 <img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/9fc729e2-db24-41ad-8ca1-13370733bdd2" />
@@ -383,8 +384,6 @@
 
 <img width="1280" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
 
-<img width="150" height="20" alt="tumblr_c3a825d2df91105347a7a944d379192f_1c019095_250" src="https://github.com/user-attachments/assets/7df94770-d636-4afa-9bbe-25598b7aa4c2" />
-<img width="150" height="20" alt="tumblr_97180ef550bcd4812564a2afacee4725_3e473857_250" src="https://github.com/user-attachments/assets/9c94ca3d-3df7-4405-ad42-7cccd95373ee" />
 <img width="1025" height="604" alt="tumblr_98d551e7d585eabfa93243b073b0a0dd_7610a92e_1280" src="https://github.com/user-attachments/assets/347dfcfb-4e4b-440c-a0f2-bbd39c2c4516" />
 <img width="698" height="689" alt="tumblr_9fa83d4b86752b01528c7edafb1c3184_91dd2055_1280" src="https://github.com/user-attachments/assets/b2b569d0-d997-461a-90e5-78021b4c7ac6" />
 
