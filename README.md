@@ -338,7 +338,6 @@
 <img width="150" height="20" alt="beetles-blinkie" src="https://github.com/user-attachments/assets/c1b2f37b-ab0a-4431-9701-1fdcea91f168" />
 <img width="396" height="40" alt="they-them" src="https://github.com/user-attachments/assets/c5e5143e-6337-4aea-a3ad-fc3269f04d45" />
 <img width="1280" height="720" alt="tumblr_95c9bf94e99530170b5ad741cd24b316_1f518497_1280" src="https://github.com/user-attachments/assets/9c844d24-d313-4009-ba8a-97418df1ce40" />
-<img width="1500" height="500" alt="tumblr_9e66e4a5ff151be72ec96287638cca49_b5861e49_2048" src="https://github.com/user-attachments/assets/1e72528e-d714-4335-9c23-8e3a2cd43562" />
 <img width="960" height="540" alt="tumblr_4221e42865bbaab0a7336d7d561835cf_56d000af_1280" src="https://github.com/user-attachments/assets/0ab5d33d-dc2f-4038-b60c-295211e9e9c1" />
 <img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
 
