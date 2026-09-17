@@ -1,11 +1,9 @@
+<img width="1280" height="720" alt="tumblr_49368e36d4ed71092bfe205638124c7b_14f85b55_1280" src="https://github.com/user-attachments/assets/c8e993d9-4289-4060-95a1-224a2e76a402" />
 <p align="center"> 
 𝗧𝗵𝗲 𝗕𝗶𝗴𝗴𝗲𝘀𝘁 𝗠𝘂𝗹𝘁𝗶𝗳𝗮𝗻𝗱𝗼𝗺𝗲𝗿 𝘆𝗼𝘂'𝘃𝗲 𝗲𝘃𝗲𝗿 𝘀𝗲𝗲𝗻 𝗛𝗜 𝗜𝗠 𝗦𝗣𝗢𝗞𝗘 𝗜𝗥𝗟!!𝟭‼️‼️‼️🍕🧪
 
 <p align="center"> 
 𝗳𝗼𝗿 𝗽𝗼𝗻𝘆 𝘁𝗼𝘄𝗻 𝗯𝗲𝘀𝘁 𝘃𝗶𝗲𝘄 𝗼𝗻 𝗹𝗮𝗽𝘁𝗼𝗽 - 𝗽𝗰
-
-<img width="1280" height="720" alt="tumblr_49368e36d4ed71092bfe205638124c7b_14f85b55_1280" src="https://github.com/user-attachments/assets/c8e993d9-4289-4060-95a1-224a2e76a402" />
-
 
 <p align="center">
   <img width="150" height="150" src="https://github.com/user-attachments/assets/c41db7ec-a53a-44c1-b316-5df545ed1593">
