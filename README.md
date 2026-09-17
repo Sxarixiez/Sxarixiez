@@ -12,7 +12,8 @@
 <p align="center"> 
    <img width="91" height="18" src="https://img.shields.io/badge/gri3f'd%20fr0m%20me-800-green?style=for-the-badge"
 </p>
-
+<p align="center"> 
+ᴅᴜᴍʙ 7ᴛᴇᴇɴ -ᴍɪɴᴏʀ- ʟɪᴛᴛʟᴇ ꜱɪʟʟʏ ᴀꜱꜰ ᴀᴜᴅʜᴅ ʙᴏʏɢɪʀʟᴛʜɪɴɢ [ᴀɴʏ ᴘʀᴏɴᴏᴜɴꜱ] #𝙏𝙃𝙀𝘿𝘼𝙍𝙆𝙇𝙊𝙍𝘿𝙎𝙄𝙈𝙋 #ˢᴴᴬᴿᴷᶠᴵᶜᵀᴵⱽᴱ 
 <img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/38eb9e4d-7a83-46fc-b406-914fe3a36e1f" />
 <img width="798" height="100" alt="image" src="https://github.com/user-attachments/assets/ea50ff84-3b49-44bc-a055-47d8b8d6aa3c" />
 <img width="1138" height="60" alt="tumblr_e8f5d4afe6b91c86ca414102347e0c32_cb10f62a_1280" src="https://github.com/user-attachments/assets/7d3aea7f-f46d-4ec2-a968-1c6a85364bc2" />
@@ -271,13 +272,7 @@
 <img width="150" height="20" alt="beetles-blinkie" src="https://github.com/user-attachments/assets/c1b2f37b-ab0a-4431-9701-1fdcea91f168" />
 <img width="396" height="40" alt="they-them" src="https://github.com/user-attachments/assets/c5e5143e-6337-4aea-a3ad-fc3269f04d45" />
 <img width="1280" height="720" alt="tumblr_95c9bf94e99530170b5ad741cd24b316_1f518497_1280" src="https://github.com/user-attachments/assets/9c844d24-d313-4009-ba8a-97418df1ce40" />
-
-# ᴛʜᴇ ʙɪɢɢᴇꜱᴛ ᴍᴜʟᴛɪꜰᴀɴᴅᴏᴍᴇʀ ʏᴏᴜ'ᴠᴇ ᴇᴠᴇʀ ꜱᴇᴇɴ ʜɪ ɪᴍ ꜱᴘᴏᴋᴇ ɪʀʟ ‼️‼️‼️🍕🧪
-
-# ꜰᴏʀ ᴘᴏɴʏ ᴛᴏᴡɴ ʙᴇꜱᴛ ᴡɪᴇᴡ ᴏɴ ʟᴀᴘᴛᴏᴘ - ᴘᴄ 
-
 <img width="1500" height="500" alt="tumblr_9e66e4a5ff151be72ec96287638cca49_b5861e49_2048" src="https://github.com/user-attachments/assets/1e72528e-d714-4335-9c23-8e3a2cd43562" />
-
 <img width="960" height="540" alt="tumblr_4221e42865bbaab0a7336d7d561835cf_56d000af_1280" src="https://github.com/user-attachments/assets/0ab5d33d-dc2f-4038-b60c-295211e9e9c1" />
 <img width="150" height="20" alt="tumblr_f25e8c8f9634a5cc987ace8bdb785b14_5cb7fd8a_250" src="https://github.com/user-attachments/assets/cf93f702-6b24-43d1-8e20-efc1f7e75c7b" />
 <img width="150" height="20" alt="tumblr_f1ff9718f9a3e13f44952f7f04757a65_8b6a6703_250" src="https://github.com/user-attachments/assets/db97db88-1876-4261-bfee-a9925dd586aa" /><img width="150" height="20" alt="blinkie-tf2 (1)" src="https://github.com/user-attachments/assets/c4c255eb-9dd5-4bfc-9fec-e2ea07ac473d" />
@@ -413,32 +408,17 @@
 
 
 <img width="1000" height="243" alt="image" src="https://github.com/user-attachments/assets/100192bb-eee0-4435-8612-f3a1168bb24d" />
-
-
 <img width="480" height="20" alt="divider (1)" src="https://github.com/user-attachments/assets/15440338-8a4d-45ca-8a7e-5a09a22bc1d5" />
-
-
-ᴛʜɪꜱ ᴀᴄᴄᴏᴜɴᴛ ɪꜱ ᴜꜱᴇᴅ ꜰᴏʀ ᴘᴛ!! [ᴘᴏɴʏ ᴛᴏᴡɴ] (ʀᴇᴀᴅ ʙᴇꜰᴏʀᴇ ɪɴᴛᴇʀᴀᴄᴛɪɴɢ)<img width="20" height="20" alt="93047aba" src="https://github.com/user-attachments/assets/c808aa10-883b-4221-bf8a-58356e61aa4c" />
+<img width="20" height="20" alt="93047aba" src="https://github.com/user-attachments/assets/c808aa10-883b-4221-bf8a-58356e61aa4c" />
 <img width="20" height="20" alt="c435c95b" src="https://github.com/user-attachments/assets/6e50ad48-79a6-4461-9d67-71edbf9b0276" />
 <img width="20" height="20" alt="42be643a" src="https://github.com/user-attachments/assets/02d6f8c1-8cc6-4902-bf57-d73f81fba64c" />
-
 <img width="150" height="20" alt="tumblr_6d51dbbd0b8d44374f09a5d80c6c074f_ce77647d_250" src="https://github.com/user-attachments/assets/97b688a9-336c-42b0-b184-ed8d5e64dd37" />
 <img width="150" height="20" alt="tumblr_f405f6b27ce0d23116b89243bc5210db_c2cd1926_250" src="https://github.com/user-attachments/assets/e0772b04-e648-4488-86f6-1c9ffb918a67" />
-
-ᴅᴜᴍʙ 7ᴛᴇᴇɴ -ᴍɪɴᴏʀ- ʟɪᴛᴛʟᴇ ꜱɪʟʟʏ ᴀꜱꜰ ᴀᴜᴅʜᴅ ʙᴏʏɢɪʀʟᴛʜɪɴɢ [ᴀɴʏ ᴘʀᴏɴᴏᴜɴꜱ] #𝙏𝙃𝙀𝘿𝘼𝙍𝙆𝙇𝙊𝙍𝘿𝙎𝙄𝙈𝙋 #ˢᴴᴬᴿᴷᶠᴵᶜᵀᴵⱽᴱ 
 <img width="736" height="737" alt="image" src="https://github.com/user-attachments/assets/f1f87771-12b5-4ba9-9d04-3909e1ff70d5" /> 
 <img width="1280" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
 <img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/9fc729e2-db24-41ad-8ca1-13370733bdd2" />
-
 <img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/abc17c2e-39cd-4c36-b978-63c2e0d1c5fe" /> 
 <img width="1280" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
-
-丂乂卂尺乂丨尺丨乇 !!1 ᵁᴿ ᴸᴼᶜᴬᴸ ᴾᵁᴺᴷ/ᴹᴱᵀᴬᴸ ᴱᴺᴶᴼʸᴱᴿ  
-
-𝙔𝙊𝙐𝙍 𝘾𝙀𝙍𝙏𝙄𝙁𝙄𝙀𝘿 𝙋𝙐𝙉𝙆 𝙈𝙐𝙎𝙄𝘾 𝘼𝙉𝘿 𝙈𝙀𝙏𝘼𝙇𝙃𝙀𝘼𝘿 𝙀𝙉𝙅𝙊𝙔𝙀𝙍‼️💢  
-
-<img width="1280" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
-
 <p align="center">
 <details>
   <summary>𝙈𝙀 𝘾𝙊𝙍𝙀!!</summary><img width="730" height="99" alt="image" src="https://github.com/user-attachments/assets/8bb95cc9-a20c-4ffb-a0b2-b0b8e6420ba3" />
