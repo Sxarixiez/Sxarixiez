@@ -37,6 +37,8 @@
 <img width="99" height="56" alt="tumblr_f2d9045612e9619d2c52b022e19ac5f3_2db6701a_100" src="https://github.com/user-attachments/assets/291165dd-9c9b-44ce-b4ad-4acc526ebcd0" />
 <img width="114" height="18" alt="tumblr_b7b040961f29bcdd5aa0b38d336a89be_e20d4ea2_250" src="https://github.com/user-attachments/assets/c07dc727-1813-438d-be85-d36c3e261085" /><img width="114" height="18" alt="tumblr_5819df40f986d1ca2d13c4dd748565d7_5af18e7d_250" src="https://github.com/user-attachments/assets/b9c43232-f880-493f-a7c8-bb4000fd5099" /> <img width="80" height="80" alt="spoke" src="https://github.com/user-attachments/assets/d90ee7b6-e84c-4b33-a1e9-3669af57a58a" />
 
+<img width="396" height="224" alt="tumblr_1b6b648d5c5f113fdc8b0bde4f400268_f3fe5e93_400" src="https://github.com/user-attachments/assets/a6026a86-f1ab-4024-ac03-edb83cc26eb4" />
+
 <img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=500&pause=100&color=03F75C&center=true&vCenter=true&width=435&lines=Undertale%2FDeltarune;Unstable+SMP;Lifesteal+SMP;Kaboodle+SMP;Friday+Night+Funkin;Five+Nights+at+Freddy's;Psychopomp+GOLD;ULTRAKILL;ENA+DREAM+BBQ;Sally+Face;Undertale+Yellow;Underverse;SANS+AUS;Katana+ZERO;Hotline+Miami;Pizza+Tower;Doki+Doki+Literature+Club;Helltaker;Awaria;Cuphead;Bendy;Bomb+Rush+Cyberfunk;INDIE+CROSS;Murder+Drones;Gameoverse;ENA+%5Bseries%5D;PlanetRonika;INVADER+ZIM;HOMESTUCK;ANTON+BLAST;Buckshot+Roulette+;Zenless+Zone+Zero;GODZILLA+or+MONSTERVERSE+IN+GENERAL;TRANSFORMERS;Postal;SOLARBALLS;COUNTRYBALLS;SMG4;DOOM;HALO;ONE+WHEAT+MARK;Vocaloid;Dead+Cells;Pokemon;EDDSWORLD;Pressure;Phighting;DIE+OF+DEATH;FORSAKEN;TRUD;Digital+Circus+%5Bidk..%5D;Battle+for+Dream+Island;The+Power+of+Two;Spiderverse;Chainsaw+Man;Hollow+Knight+;Hollow+Knight%3A+SILKSONG;Animation+VS+Minecraft+;Animation+VS+Animator;Sonic+The+Hedgehog;REGRETEVATOR;AND+MORE!!1!1)](https://git.io/typing-svg)  
@@ -351,50 +353,6 @@
 <img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F70000&center=true&width=435&lines=partykiller+%26+anomaly+duo+twin%3A;%40spokishere)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=7C01F7&center=true&vCenter=true&width=435&lines=TAX+duo+%26+Orbital+duo+twin%3A;%40redsundew)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=03F7D6&center=true&vCenter=true&width=435&lines=DOUBLECHROMATIC+DUO+twin%3A;%40itsyula-2)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F74201&center=true&vCenter=true&width=435&lines=BLINDFOLD+BROTHERS+DUO+TWIN%3A;%40itsyula-2)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F74200&center=true&vCenter=true&width=435&lines=YUMMERZ+TRIO+twins%3A;%40loopsieboyy+%26+%40PolishDrBirkin)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F74200&center=true&vCenter=true&width=435&lines=AROACE+TRIO+twins%3A;%40spokishere+%26+%40redsundew)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F70000&center=true&vCenter=true&width=435&lines=AXE+duo+twin%3A;%40VoodooPeople7)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F70000&center=true&vCenter=true&width=435&lines=doomsday+duo+twin%3A;%40Ash1elover)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=06F76E&center=true&vCenter=true&width=435&lines=icysilly+duo+twin%3A;%40dancingc0rpses)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=10&pause=1000&color=F70000&center=true&vCenter=true&width=435&lines=OUTLAW+TRIO+twins%3A;%40Ash1elover+%26+VoodooPeople7)](https://git.io/typing-svg)
-
-<img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
-
-
-<img width="396" height="224" alt="tumblr_1b6b648d5c5f113fdc8b0bde4f400268_f3fe5e93_400" src="https://github.com/user-attachments/assets/a6026a86-f1ab-4024-ac03-edb83cc26eb4" />
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=40&size=10&pause=1000&color=F70878&center=true&vCenter=true&width=435&separator=%3C&lines=subspace+original++;+D+O+++N++O+T++C+O+P+Y%3C+OR+YOUR+GETTING+SLIMED)](https://git.io/typing-svg)
-
-<p align="center">
-<img width="212" height="228" alt="pony-town-_💉_ ‼⁉ - SUBSPACE!!1 🙀-dance-lie-blinking-padded-toy421-4x" src="https://github.com/user-attachments/assets/78afb63f-ebd8-4706-84ef-5a8db33369f9" />
-
-<p align="center">
-<img width="216" height="220" alt="pony-town-_💉⚠_ ‼⁉ - _MY INVENTION!!1_-dance-lie-blinking-padded-toy421-4x" src="https://github.com/user-attachments/assets/1d699609-ab97-4932-8fa8-c570a992da46" /> 
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F70878&center=true&vCenter=true&width=435&separator=%3C&lines=subspace+skins+;+jester+%2C+cutie)](https://git.io/typing-svg) 
-
-<p align="center">
-<img width="220" height="200" alt="pony-town-_⭐🎭_ ‼⁉ - JESTERSPACE!!1 😺-dance-lie-blinking-padded-4x" src="https://github.com/user-attachments/assets/fd98b511-f5de-43e2-8688-b73adae05e5f" />
-
-<p align="center">
-<img width="212" height="200" alt="pony-town-_🍓_ ‼⁉ - CUTIESPACE!!1 😼-dance-lie-blinking-padded-toy365-4x" src="https://github.com/user-attachments/assets/f5bbcf36-60ca-4d80-942e-5a829a84136f" />
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=63F700&center=true&vCenter=true&width=435&separator=%3C&lines=SARAH!!+main+oc;+two+version!)](https://git.io/typing-svg)
-
-<p align="center">
-<img width="220" height="196" alt="pony-town-# _⚠💊_ ‼ - ꜱᴀʀᴀʜ !! ザ・グラディエント-dance-lie-blinking-padded-toy269-4x" src="https://github.com/user-attachments/assets/45d89d14-8aad-422f-ba78-d7f3dc9c84a9" />
-
-<p align="center">
-<img width="220" height="196" alt="pony-town-# _⚠💊_ ‼ - ꜱᴀʀᴀʜ !! プッシュ式電話機-dance-lie-blinking-padded-toy269-4x" src="https://github.com/user-attachments/assets/bc7ab018-8f76-476c-a3e0-e1c864132172" />
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F70878&center=true&vCenter=true&width=435&lines=I'm+also+seen+w+this+three+too+)](https://git.io/typing-svg)
-
-<p align="center">
-<img width="208" height="192" alt="pony-town-_⛓_ ‼⁉ - AGOTI!!1 🖤-dance-lie-blinking-padded-4x" src="https://github.com/user-attachments/assets/0f55bc31-436b-40d0-b92e-858f7d9a7a53" /> 
-
-<p align="center">
-<img width="216" height="196" alt="pony-town-# _🎧_ グーバー ‼⁉ - BOOMBOX!!1 😾-dance-lie-blinking-padded-4x" src="https://github.com/user-attachments/assets/9a25b2ea-685a-4ef2-8bf1-70054004c05b" />
-
-<p align="center">  
-<img width="216" height="220" alt="pony-town-# _🐺⚡_ ‼⁉ ファイター - COIL!!1 🐾-dance-lie-blinking-padded-toy198-4x" src="https://github.com/user-attachments/assets/da4e4a92-e759-4bd3-ba0a-235c11c5e8e4" /> 
-
-<img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=10&pause=1000&color=F70878&center=true&vCenter=true&width=435&lines=%22Why+don't+you+come+play+with+me+and+take+me+to+the+other+side%3F%22)](https://git.io/typing-svg)
 
 <img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
 
