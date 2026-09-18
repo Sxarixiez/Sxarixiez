@@ -39,6 +39,7 @@
 <p align="center">
 <img width="396" height="224" alt="tumblr_1b6b648d5c5f113fdc8b0bde4f400268_f3fe5e93_400" src="https://github.com/user-attachments/assets/a6026a86-f1ab-4024-ac03-edb83cc26eb4" />
 
+<p align="center">
 <img width="139" height="79" alt="tumblr_3f20dbf7306c50e55b2bdeee37ccb245_cefdcdba_250" src="https://github.com/user-attachments/assets/66554e42-1af2-439f-a36a-610fd7168f96" />
 
 <img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
