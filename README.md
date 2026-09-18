@@ -181,7 +181,7 @@
 <img width="150" height="20" alt="tumblr_4083b5af81a4f6a086656cdf58c4df98_d218b010_250" src="https://github.com/user-attachments/assets/384acc57-7453-40e2-a341-4a4726bfe2f8" />
 <img width="150" height="20" alt="tumblr_3c77c88a5d8d534100f16dc3b2a09e26_cbe7bfea_250" src="https://github.com/user-attachments/assets/0084a3b6-56e2-4b17-9787-75b7697b1040" />
 <img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/38eb9e4d-7a83-46fc-b406-914fe3a36e1f" />
-<img width="150" height="150" alt="beating-heart-kids-choice-awards" src="https://github.com/user-attachments/assets/28ca0a9b-50f5-454a-8ea0-ac39da3ef21e" /><img width="374" height="374" alt="postal-postal-dude" src="https://github.com/user-attachments/assets/15225e33-d9ba-4303-bfb6-741df9a1b5a8" />
+<img width="150" height="150" alt="beating-heart-kids-choice-awards" src="https://github.com/user-attachments/assets/28ca0a9b-50f5-454a-8ea0-ac39da3ef21e" /><img width="150" height="150" alt="postal-postal-dude" src="https://github.com/user-attachments/assets/15225e33-d9ba-4303-bfb6-741df9a1b5a8" />
 <img width="150" height="150" alt="phisnom-phisnom-dance" src="https://github.com/user-attachments/assets/77fc10d4-6aec-40b0-ad6f-925848e840ed" />
 <img width="150" height="150" alt="sanford-and-deimos-madness" src="https://github.com/user-attachments/assets/5b648f2f-480a-415f-acef-eaab75a82d0a" />
 <img width="251" height="251" alt="tmnt-rot-tmnt" src="https://github.com/user-attachments/assets/1e4cc5d6-8320-4d7f-bf2a-d9336ab56f59" />
@@ -204,9 +204,9 @@
 <img width="498" height="498" alt="slime-rancher" src="https://github.com/user-attachments/assets/0643c538-828e-4ab2-aee6-37305a3f206f" />
 <img width="371" height="498" alt="murder-drones-serial-designation-n" src="https://github.com/user-attachments/assets/6065147c-e71b-494c-a9e3-462b6239cf37" />
 <img width="300" height="300" alt="my-beloved" src="https://github.com/user-attachments/assets/04bb2cc3-59ca-4faf-9ea9-f67749fc0048" />
-<img width="498" height="498" alt="phisnom-phisnom-phil-morg" src="https://github.com/user-attachments/assets/00315e3e-e67a-456c-9c6b-19589457da22" />
+<img width="288" height="325" alt="phisnom-phisnom-phil-morg" src="https://github.com/user-attachments/assets/00315e3e-e67a-456c-9c6b-19589457da22" />
 <img width="288" height="325" alt="phisnom-the-toxic-cesspit" src="https://github.com/user-attachments/assets/965488a3-e5c9-475b-a311-4943e3d2254b" />
-<img width="278" height="360" alt="madness-combat-son-im-crine" src="https://github.com/user-attachments/assets/7a8d4441-a9f9-4f8e-a47c-73b36ade79a1" />
+<img width="288" height="325" alt="madness-combat-son-im-crine" src="https://github.com/user-attachments/assets/7a8d4441-a9f9-4f8e-a47c-73b36ade79a1" />
     </p>
 </details>
 
