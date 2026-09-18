@@ -193,6 +193,7 @@
 <img width="498" height="249" alt="banner-para-lavaso-yipi" src="https://github.com/user-attachments/assets/05b6b257-379b-4330-9443-cf3ea6f31296" />
 <img width="498" height="498" alt="uzi-murder-drones" src="https://github.com/user-attachments/assets/d0fcdc47-a6c5-4146-b17c-513c84a9c3af" />
 <img width="498" height="498" alt="jacket-from-hotline-miami" src="https://github.com/user-attachments/assets/5280c8cc-fcb0-4add-b226-27bbb6efe650" />
+<img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/38eb9e4d-7a83-46fc-b406-914fe3a36e1f" />
 <img width="150" height="150" alt="touhou-touhou-project" src="https://github.com/user-attachments/assets/41f9a8b0-d9cc-4f91-bf9b-b9f0eea8401f" />
 <img width="150" height="150" alt="qt-fnf" src="https://github.com/user-attachments/assets/103a268b-bbd3-4cdd-a86f-bacb1627ab91" />
 <img width="150" height="150" alt="delta-rune-default-dance" src="https://github.com/user-attachments/assets/6dc41beb-06d2-4e70-b3b5-21038dc2a84a" />
