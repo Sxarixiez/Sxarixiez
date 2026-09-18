@@ -180,6 +180,7 @@
 <img width="150" height="20" alt="tumblr_c2935e6fabe0d238c43279f85c284ef7_641d6203_250" src="https://github.com/user-attachments/assets/1f6a438e-8df1-4a75-b8b1-f50b502b7bda" />
 <img width="150" height="20" alt="tumblr_4083b5af81a4f6a086656cdf58c4df98_d218b010_250" src="https://github.com/user-attachments/assets/384acc57-7453-40e2-a341-4a4726bfe2f8" />
 <img width="150" height="20" alt="tumblr_3c77c88a5d8d534100f16dc3b2a09e26_cbe7bfea_250" src="https://github.com/user-attachments/assets/0084a3b6-56e2-4b17-9787-75b7697b1040" />
+<img width="432" height="498" alt="beating-heart-kids-choice-awards" src="https://github.com/user-attachments/assets/28ca0a9b-50f5-454a-8ea0-ac39da3ef21e" />
     </p>
 </details>
 
