@@ -107,6 +107,11 @@
 <img width="350" height="19" alt="tumblr_9b9c4fc56febb90550021a2796b987b3_fef44f4c_400" src="https://github.com/user-attachments/assets/3efc706b-c5fd-4789-8dc3-ba0f2e42950c" />  
 <img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
 
+<img width="800" height="166" alt="tumblr_dfa05e1381f96bbabb98b0198a79d7f9_e62ea35c_1280" src="https://github.com/user-attachments/assets/ed1df049-0eeb-4030-9236-79d63f818277" />
+<img width="800" height="162" alt="tumblr_9926464f8c23c7c7c700b1e6ef2530eb_0eff44ca_1280" src="https://github.com/user-attachments/assets/c883e52f-c811-4c04-9c6f-a04bcf3f03cf" />
+<img width="771" height="158" alt="tumblr_bd0c1a3487679d9e382fa33957c6ae12_90882c1f_1280" src="https://github.com/user-attachments/assets/7666ef4f-0dfa-4f9a-8025-307ebab577b3" />
+<img width="600" height="80" alt="tumblr_41c5efc992e1c82b3e1c20c4b606abe7_7709586d_640" src="https://github.com/user-attachments/assets/cc074a24-c5fc-4371-83e7-06bc8cd3ac09" />
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=wh95bd2d2nzt9nw0o7ozlsule&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)<img width="150" height="150" alt="ena-ena-dream-bbq" src="https://github.com/user-attachments/assets/055e9a36-9acd-4110-97c2-455aa5868533" />  <img width="90" height="90" alt="jevil-delatrune" src="https://github.com/user-attachments/assets/b1fca7f8-2bbf-46fd-b90a-b1b80f2a3cd9" /><img width="90" height="90" alt="deltarune-susie" src="https://github.com/user-attachments/assets/8269458c-de58-4e3c-8774-6b9bb36ea79c" />
 <img width="300" height="40" alt="sick-hell" src="https://github.com/user-attachments/assets/d9b9625d-56e3-4dde-9cb7-d2aea0708832" /><img width="99" height="56" alt="blinkies-hatsune-miku" src="https://github.com/user-attachments/assets/486dd61f-f13f-459a-a019-ee8b61ad70cf" />
  <img width="99" height="56" alt="blinkies (7)" src="https://github.com/user-attachments/assets/377295de-09d3-47bb-a154-8f88f21d7bfe" /><img width="100" height="50" alt="blinkies-needy-streamer-overload" src="https://github.com/user-attachments/assets/e97e1305-4845-4dc4-866d-b77e21d71243" />
