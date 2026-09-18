@@ -190,6 +190,23 @@
 <img width="498" height="498" alt="burning-spice-burning-spice-cookie" src="https://github.com/user-attachments/assets/a6c3dc1f-a9fd-45c7-a5b1-f7d4e36b8f97" />
 <img width="498" height="374" alt="ena-ena-dream-bbq (1)" src="https://github.com/user-attachments/assets/9864a370-3933-4050-acdc-31df0713234a" />
 <img width="498" height="391" alt="burning-spice-cookie-cookie-run-kingdom" src="https://github.com/user-attachments/assets/aa4ce980-21bc-42cb-94d7-dac97ddcaca1" />
+<img width="498" height="249" alt="banner-para-lavaso-yipi" src="https://github.com/user-attachments/assets/05b6b257-379b-4330-9443-cf3ea6f31296" />
+<img width="498" height="498" alt="uzi-murder-drones" src="https://github.com/user-attachments/assets/d0fcdc47-a6c5-4146-b17c-513c84a9c3af" />
+<img width="324" height="324" alt="unstable-smp-wemmbu" src="https://github.com/user-attachments/assets/6330e0f8-cff8-4062-bcb1-be74ffa9c8d3" />
+<img width="498" height="498" alt="jacket-from-hotline-miami" src="https://github.com/user-attachments/assets/5280c8cc-fcb0-4add-b226-27bbb6efe650" />
+<img width="498" height="422" alt="discord-for" src="https://github.com/user-attachments/assets/0419856a-1986-4828-aded-6269fad43418" />
+<img width="498" height="498" alt="spokeishere-unstableuniverse" src="https://github.com/user-attachments/assets/db14558c-4835-4c84-860a-7e8a1153de37" />
+<img width="242" height="166" alt="touhou-touhou-project" src="https://github.com/user-attachments/assets/41f9a8b0-d9cc-4f91-bf9b-b9f0eea8401f" />
+<img width="345" height="498" alt="qt-fnf" src="https://github.com/user-attachments/assets/103a268b-bbd3-4cdd-a86f-bacb1627ab91" />
+<img width="204" height="225" alt="delta-rune-default-dance" src="https://github.com/user-attachments/assets/6dc41beb-06d2-4e70-b3b5-21038dc2a84a" />
+<img width="108" height="104" alt="jevil-deltarune" src="https://github.com/user-attachments/assets/b1a47619-df7e-429f-ad09-3b9b50ccf8bb" />
+<img width="498" height="462" alt="shadow-milk-cookie" src="https://github.com/user-attachments/assets/38926c0c-ddb6-49d8-acd5-5c01f56c90b1" />
+<img width="498" height="498" alt="slime-rancher" src="https://github.com/user-attachments/assets/0643c538-828e-4ab2-aee6-37305a3f206f" />
+<img width="371" height="498" alt="murder-drones-serial-designation-n" src="https://github.com/user-attachments/assets/6065147c-e71b-494c-a9e3-462b6239cf37" />
+<img width="300" height="300" alt="my-beloved" src="https://github.com/user-attachments/assets/04bb2cc3-59ca-4faf-9ea9-f67749fc0048" />
+<img width="498" height="498" alt="phisnom-phisnom-phil-morg" src="https://github.com/user-attachments/assets/00315e3e-e67a-456c-9c6b-19589457da22" />
+<img width="288" height="325" alt="phisnom-the-toxic-cesspit" src="https://github.com/user-attachments/assets/965488a3-e5c9-475b-a311-4943e3d2254b" />
+<img width="278" height="360" alt="madness-combat-son-im-crine" src="https://github.com/user-attachments/assets/7a8d4441-a9f9-4f8e-a47c-73b36ade79a1" />
     </p>
 </details>
 
