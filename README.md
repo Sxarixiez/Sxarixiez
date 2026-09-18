@@ -13,7 +13,7 @@
    <img width="91" height="18" src="https://img.shields.io/badge/gri3f'd%20fr0m%20me-800-green?style=for-the-badge"
 </p>
 <p align="center"> 
-𝗗𝘂𝗺𝗯 𝟳𝘁𝗲𝗲𝗻 -𝗠𝗜𝗡𝗢𝗥- 𝗹𝗶𝘁𝘁𝗹𝗲 𝘀𝗶𝗹𝗹𝘆 𝗮𝘀𝗳 𝗮𝘂𝗱𝗵𝗱 𝗯𝗼𝘆𝗴𝗶𝗿𝗹𝘁𝗵𝗶𝗻𝗴 [𝗮𝗻𝘆 𝗽𝗿𝗼𝗻𝗼𝘂𝗻𝘀] #𝙏𝙃𝙀𝘿𝘼𝙍𝙆𝙇𝙊𝙍𝘿𝙎𝙄𝙈𝙋 
+𝗗𝘂𝗺𝗯 𝟳𝘁𝗲𝗲𝗻 -𝗠𝗜𝗡𝗢𝗥- 𝗹𝗶𝘁𝘁𝗹𝗲 𝘀𝗶𝗹𝗹𝘆 𝗮𝘀𝗳 𝗮𝘂𝗱𝗵𝗱 𝗯𝗼𝘆𝗴𝗶𝗿𝗹𝘁𝗵𝗶𝗻𝗴 [𝗮𝗻𝘆 𝗽𝗿𝗼𝗻𝗼𝘂𝗻𝘀] #𝙏𝙃𝙀𝘿𝘼𝙍𝙆𝙇𝙊𝙍𝘿𝙎𝙄𝙈𝙋 <img width="32" height="32" alt="tumblr_5135449061754e717a43667eda0905d6_0cb84951_75" src="https://github.com/user-attachments/assets/a8eb9b51-675a-4195-82f7-195b15dcb64c" />
 <img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/38eb9e4d-7a83-46fc-b406-914fe3a36e1f" />
 <img width="798" height="100" alt="image" src="https://github.com/user-attachments/assets/ea50ff84-3b49-44bc-a055-47d8b8d6aa3c" />
 <img width="1138" height="60" alt="tumblr_e8f5d4afe6b91c86ca414102347e0c32_cb10f62a_1280" src="https://github.com/user-attachments/assets/7d3aea7f-f46d-4ec2-a968-1c6a85364bc2" />
@@ -25,7 +25,6 @@
 <img width="78" height="18" alt="tumblr_bc46486acb27789b08a26474eb880d4f_58091d91_100" src="https://github.com/user-attachments/assets/af1678b1-ae46-4ed4-907e-0f291fd591e7" />
 <img width="75" height="18" alt="tumblr_e6257e535d58a548c76c9dfa49428434_542275e7_75" src="https://github.com/user-attachments/assets/385962b2-9175-4321-856e-147bc1390da7" />
 <img width="83" height="18" alt="tumblr_f38a4ab4e3607164df2f69fabed25b36_77718939_100" src="https://github.com/user-attachments/assets/6279c508-c4ef-440f-b10d-7acbe97158c9" />
-<img width="32" height="32" alt="tumblr_5135449061754e717a43667eda0905d6_0cb84951_75" src="https://github.com/user-attachments/assets/a8eb9b51-675a-4195-82f7-195b15dcb64c" />
 <img width="20" height="20" alt="tumblr_d5c5bf22f94a66dbb0bb9a3731a876d4_e473355c_75" src="https://github.com/user-attachments/assets/74f2d7b1-56b1-44ca-b9bd-55cdd7add4d1" />
 <img width="20" height="20" alt="tumblr_925a6eb5228c10789ad8550c30ec3de2_2f2735e0_75" src="https://github.com/user-attachments/assets/75e5c41c-61c1-44f7-96b8-323a50ba5605" />
 
