@@ -39,6 +39,8 @@
 <p align="center">
 <img width="396" height="224" alt="tumblr_1b6b648d5c5f113fdc8b0bde4f400268_f3fe5e93_400" src="https://github.com/user-attachments/assets/a6026a86-f1ab-4024-ac03-edb83cc26eb4" />
 
+<img width="139" height="79" alt="tumblr_3f20dbf7306c50e55b2bdeee37ccb245_cefdcdba_250" src="https://github.com/user-attachments/assets/66554e42-1af2-439f-a36a-610fd7168f96" />
+
 <img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=500&pause=100&color=03F75C&center=true&vCenter=true&width=435&lines=Undertale%2FDeltarune;Unstable+SMP;Lifesteal+SMP;Kaboodle+SMP;Friday+Night+Funkin;Five+Nights+at+Freddy's;Psychopomp+GOLD;ULTRAKILL;ENA+DREAM+BBQ;Sally+Face;Undertale+Yellow;Underverse;SANS+AUS;Katana+ZERO;Hotline+Miami;Pizza+Tower;Doki+Doki+Literature+Club;Helltaker;Awaria;Cuphead;Bendy;Bomb+Rush+Cyberfunk;INDIE+CROSS;Murder+Drones;Gameoverse;ENA+%5Bseries%5D;PlanetRonika;INVADER+ZIM;HOMESTUCK;ANTON+BLAST;Buckshot+Roulette+;Zenless+Zone+Zero;GODZILLA+or+MONSTERVERSE+IN+GENERAL;TRANSFORMERS;Postal;SOLARBALLS;COUNTRYBALLS;SMG4;DOOM;HALO;ONE+WHEAT+MARK;Vocaloid;Dead+Cells;Pokemon;EDDSWORLD;Pressure;Phighting;DIE+OF+DEATH;FORSAKEN;TRUD;Digital+Circus+%5Bidk..%5D;Battle+for+Dream+Island;The+Power+of+Two;Spiderverse;Chainsaw+Man;Hollow+Knight+;Hollow+Knight%3A+SILKSONG;Animation+VS+Minecraft+;Animation+VS+Animator;Sonic+The+Hedgehog;REGRETEVATOR;AND+MORE!!1!1)](https://git.io/typing-svg)  
