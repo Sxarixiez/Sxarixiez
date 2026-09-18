@@ -181,7 +181,15 @@
 <img width="150" height="20" alt="tumblr_4083b5af81a4f6a086656cdf58c4df98_d218b010_250" src="https://github.com/user-attachments/assets/384acc57-7453-40e2-a341-4a4726bfe2f8" />
 <img width="150" height="20" alt="tumblr_3c77c88a5d8d534100f16dc3b2a09e26_cbe7bfea_250" src="https://github.com/user-attachments/assets/0084a3b6-56e2-4b17-9787-75b7697b1040" />
 <img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/38eb9e4d-7a83-46fc-b406-914fe3a36e1f" />
-<img width="150" height="150" alt="beating-heart-kids-choice-awards" src="https://github.com/user-attachments/assets/28ca0a9b-50f5-454a-8ea0-ac39da3ef21e" />
+<img width="150" height="150" alt="beating-heart-kids-choice-awards" src="https://github.com/user-attachments/assets/28ca0a9b-50f5-454a-8ea0-ac39da3ef21e" /><img width="374" height="374" alt="postal-postal-dude" src="https://github.com/user-attachments/assets/15225e33-d9ba-4303-bfb6-741df9a1b5a8" />
+<img width="319" height="320" alt="phisnom-phisnom-dance" src="https://github.com/user-attachments/assets/77fc10d4-6aec-40b0-ad6f-925848e840ed" />
+<img width="498" height="498" alt="sanford-and-deimos-madness" src="https://github.com/user-attachments/assets/5b648f2f-480a-415f-acef-eaab75a82d0a" />
+<img width="251" height="251" alt="tmnt-rot-tmnt" src="https://github.com/user-attachments/assets/1e4cc5d6-8320-4d7f-bf2a-d9336ab56f59" />
+<img width="200" height="200" alt="edward-savage-kawaii" src="https://github.com/user-attachments/assets/b08759fe-6416-4757-a1fa-216a4997759d" /> 
+<img width="498" height="281" alt="awaria" src="https://github.com/user-attachments/assets/0d3ebb27-2af2-4db4-bb52-f78f2813cd33" />
+<img width="498" height="498" alt="burning-spice-burning-spice-cookie" src="https://github.com/user-attachments/assets/a6c3dc1f-a9fd-45c7-a5b1-f7d4e36b8f97" />
+<img width="498" height="374" alt="ena-ena-dream-bbq (1)" src="https://github.com/user-attachments/assets/9864a370-3933-4050-acdc-31df0713234a" />
+<img width="498" height="391" alt="burning-spice-cookie-cookie-run-kingdom" src="https://github.com/user-attachments/assets/aa4ce980-21bc-42cb-94d7-dac97ddcaca1" />
     </p>
 </details>
 
