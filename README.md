@@ -1,3 +1,4 @@
+<img width="78" height="18" alt="tumblr_bc46486acb27789b08a26474eb880d4f_58091d91_100" src="https://github.com/user-attachments/assets/af1678b1-ae46-4ed4-907e-0f291fd591e7" />
 <img width="1280" height="720" alt="tumblr_49368e36d4ed71092bfe205638124c7b_14f85b55_1280" src="https://github.com/user-attachments/assets/c8e993d9-4289-4060-95a1-224a2e76a402" />
 <p align="center"> 
 𝗧𝗵𝗲 𝗕𝗶𝗴𝗴𝗲𝘀𝘁 𝗠𝘂𝗹𝘁𝗶𝗳𝗮𝗻𝗱𝗼𝗺𝗲𝗿 𝘆𝗼𝘂'𝘃𝗲 𝗲𝘃𝗲𝗿 𝘀𝗲𝗲𝗻 𝗛𝗜 𝗜𝗠 𝗦𝗣𝗢𝗞𝗘 𝗜𝗥𝗟!!𝟭‼️‼️‼️🍕🧪
@@ -48,6 +49,7 @@
 <p align="center"> 
 - (●'◡'●) 𝙄𝙈 𝙎𝙋𝙊𝙊𝙆𝙀𝙀 𝙐𝙉𝙎𝙏𝘼𝘽𝙇𝙀𝙀𝙀 <img width="20" height="20" alt="c06f33a3" src="https://github.com/user-attachments/assets/c683339f-4adf-4044-9bc8-cee5d130dad9" /><img width="20" height="20" alt="f9d79ff2" src="https://github.com/user-attachments/assets/c5d61602-1ef8-4844-bf00-53bf4ca247bb" />
 <img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/38eb9e4d-7a83-46fc-b406-914fe3a36e1f" />
+<img width="150" height="20" alt="tumblr_ab7a0ec192c4387b8717c685b1cd41c9_67847764_250" src="https://github.com/user-attachments/assets/11a9325e-47df-421c-8e1c-45aac7248c63" />
 <img width="150" height="20" alt="tumblr_c145e32cef18dd60ed7be5737a66c335_031bde7a_250" src="https://github.com/user-attachments/assets/b4c0fb1d-79ee-40e7-98b5-4d46cd0f436f" />
 <img width="150" height="20" alt="tumblr_3a763a523909a939ffa4f5e0ee1e871d_ac26d75b_250" src="https://github.com/user-attachments/assets/99ab11fe-9b3e-4158-b94c-c17b785fc40a" />
 <img width="150" height="20" alt="tumblr_7f4a8c15a272a742e41eb4c6e0cef2e5_342cd11d_250" src="https://github.com/user-attachments/assets/1e36a0a5-baad-4d69-9439-49f4760e2b7d" />
