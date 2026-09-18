@@ -373,12 +373,6 @@
 <img width="600" height="80" alt="tumblr_e7d69b4774d190f3f19cfbbf43b8ab68_1aca2cb8_640" src="https://github.com/user-attachments/assets/7b06e2ac-246a-4a71-8f82-a53946328f5c" />  
 <img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
 <img width="1125" height="629" alt="tumblr_f1a79f72c1d733a73dc25d83151b16ff_adb2d7d8_1280" src="https://github.com/user-attachments/assets/b9181777-187a-4d9a-86be-9e267e74712d" /> 
-<img width="736" height="414" alt="WhatsApp Image 2026-06-25 at 12 22 47 (15)" src="https://github.com/user-attachments/assets/14c99f66-620f-4cf2-9fa0-f7c474c96c0a" /> 
-<img width="58" height="18" alt="cae80663" src="https://github.com/user-attachments/assets/c123f720-b3d1-4977-b039-c70324de00c6" />
-<img width="20" height="20" alt="886c2fe0" src="https://github.com/user-attachments/assets/5de80f13-b868-4585-9147-f0cc42d44244" />
- 
-![Static Badge](https://img.shields.io/badge/%22%20A%20n%20d%20y%20e%20t%20%2C%20I%20s%20t%20i%20l%20l%20f%20e%20e%20l%20n%20o%20t%20h%20i%20n%20g%20.%20%22-yellow)
-
 <img width="736" height="737" alt="image" src="https://github.com/user-attachments/assets/f1f87771-12b5-4ba9-9d04-3909e1ff70d5" /> 
 <img width="1280" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
 <img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/9fc729e2-db24-41ad-8ca1-13370733bdd2" />
