@@ -150,7 +150,29 @@
 𝙎𝙥𝙤𝙠𝙚𝙄𝙨𝙃𝙚𝙧𝙚, 𝙎𝙪𝙗𝙨𝙥𝙖𝙘𝙚 𝙏𝙧𝙞𝙥𝙢𝙞𝙣𝙚, 𝙎𝙪𝙧𝙜𝙚 𝙏𝙝𝙚 𝙏𝙚𝙣𝙧𝙚𝙘, 𝙂𝙖𝙢𝙯𝙚𝙚 𝙈𝙖𝙠𝙖𝙧𝙖, 𝙆𝙞𝙡𝙡𝙚𝙧! 𝙎𝙖𝙣𝙨, 𝙔𝙄 𝙓𝙄, 𝙂𝙧𝙞𝙚𝙛𝙚𝙧, 𝙂𝙣𝙖𝙧𝙥𝙮 𝙁𝙞𝙘𝙩𝙞𝙤𝙣𝙠𝙞𝙣
 
 <p align="center">
-𝐈'𝐦 𝐧𝐨𝐭 𝐢𝐧𝐭𝐞𝐫𝐚𝐜𝐭𝐢𝐧𝐠 𝐰𝐢𝐭𝐡 𝐭𝐡𝐞 𝐡𝐚𝐳𝐛𝐢𝐧/𝐡𝐞𝐥𝐥𝐮𝐯𝐚 , 𝐝𝐢𝐠𝐢𝐭𝐚𝐥 𝐜𝐢𝐫𝐜𝐮𝐬, 𝐝𝐚𝐧𝐝𝐲'𝐬 𝐰𝐨𝐫𝐥𝐝, 𝐟𝐨𝐫𝐬𝐚𝐤𝐞𝐧 𝐟𝐚𝐧𝐝𝐨𝐦 𝐢𝐟 𝐲𝐨𝐮 𝐚𝐬𝐤 𝐚𝐧𝐝 𝐈 𝐝𝐨𝐧𝐭 𝐬𝐮𝐩𝐩𝐨𝐫𝐭 𝐯𝐢𝐯𝐳𝐢𝐞 𝐢𝐧 𝐚𝐧𝐲 𝐰𝐚𝐲 𝐈 𝐣𝐮𝐬𝐭 𝐥𝐨𝐯𝐞 𝐯𝐨𝐱 𝐩𝐥𝐞𝐚𝐬𝐞 
+𝐈'𝐦 𝐧𝐨𝐭 𝐢𝐧𝐭𝐞𝐫𝐚𝐜𝐭𝐢𝐧𝐠 𝐰𝐢𝐭𝐡 𝐭𝐡𝐞 𝐡𝐚𝐳𝐛𝐢𝐧/𝐡𝐞𝐥𝐥𝐮𝐯𝐚 , 𝐝𝐢𝐠𝐢𝐭𝐚𝐥 𝐜𝐢𝐫𝐜𝐮𝐬, 𝐝𝐚𝐧𝐝𝐲'𝐬 𝐰𝐨𝐫𝐥𝐝, 𝐟𝐨𝐫𝐬𝐚𝐤𝐞𝐧 𝐟𝐚𝐧𝐝𝐨𝐦 𝐢𝐟 𝐲𝐨𝐮 𝐚𝐬𝐤 𝐚𝐧𝐝 𝐈 𝐝𝐨𝐧𝐭 𝐬𝐮𝐩𝐩𝐨𝐫𝐭 𝐯𝐢𝐯𝐳𝐢𝐞 𝐢𝐧 𝐚𝐧𝐲 𝐰𝐚𝐲 𝐈 𝐣𝐮𝐬𝐭 𝐥𝐨𝐯𝐞 𝐯𝐨𝐱 𝐩𝐥𝐞𝐚𝐬𝐞
+
+<p align="center">
+<details>
+  <summary>ɪᴍᴘᴏʀᴛᴀɴᴛ!!</summary>
+  <p align="center">
+    </p>
+</details>
+
+<p align="center">
+<details>
+  <summary>ᴍʏ ᴏꜱʜɪ!!</summary>
+  <p align="center">
+    </p>
+</details>
+
+<p align="center">
+<details>
+  <summary>𝙎𝙃𝘼𝙍𝙆 𝙃𝙔𝙋𝙀𝙍𝙁𝙄𝙓𝘼𝙏𝙄𝙊𝙉 𝘽𝙊𝘼𝙍𝘿!!</summary>
+  <p align="center">
+    </p>
+</details>
+
 <img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/38eb9e4d-7a83-46fc-b406-914fe3a36e1f" />
 <img width="1320" height="100" alt="image" src="https://github.com/user-attachments/assets/da5cf577-91f1-4463-b2d9-26cca4f9e42e" />
 
