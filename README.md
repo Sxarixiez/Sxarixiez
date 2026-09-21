@@ -204,7 +204,33 @@
 <p align="center">
 <details>
   <summary>𝙎𝙃𝘼𝙍𝙆 𝙃𝙔𝙋𝙀𝙍𝙁𝙄𝙓𝘼𝙏𝙄𝙊𝙉 𝘽𝙊𝘼𝙍𝘿!!</summary>
-  <p align="center">
+  <p align="center"><img width="99" height="56" alt="tumblr_d154103a89591adcc6d875be383dea0c_723eb5d0_100" src="https://github.com/user-attachments/assets/b9c97c59-0f74-4589-94e2-864fe4d10d16" />
+<img width="99" height="56" alt="tumblr_4c19cb0b8a2862cd2a9a2e1970aa0aa7_bd853cc8_100" src="https://github.com/user-attachments/assets/7a0a0558-5da8-43fb-9434-0b758d4fa90c" />
+<img width="99" height="56" alt="tumblr_de955c97631c52f1c0a6168486272edb_f49f7c60_100" src="https://github.com/user-attachments/assets/da500d8c-726d-46de-9776-ca7677f610d4" />
+<img width="500" height="500" alt="Spray_Icon_-_Devouring_Duo" src="https://github.com/user-attachments/assets/1a20224c-f628-4915-9a43-2610f4b65155" />
+<img width="500" height="500" alt="Jeff_the_Land_Shark_Prestige_Artwork" src="https://github.com/user-attachments/assets/b82984cd-4475-4f7c-801e-f87cf5d9649a" />
+<img width="784" height="784" alt="CosInfo_-_Jeff_the_Land_Shark_Verdant_Vortex_Icon" src="https://github.com/user-attachments/assets/3633ece2-2b8c-4c31-869f-1b3c8c33f082" />
+<img width="500" height="500" alt="CosInfo_-_Jeff_the_Land_Shark_Sunshine_Land_Shark_Icon" src="https://github.com/user-attachments/assets/1ce8b5c0-a03b-48e1-8b3d-e82fd1938726" />
+<img width="499" height="499" alt="CosInfo_-_Jeff_the_Land_Shark_Shark_in_Sheep%27s_Clothing_Icon" src="https://github.com/user-attachments/assets/2550599a-7cc0-43ea-afd6-1b6ff5bb630f" />
+<img width="768" height="768" alt="CosInfo_-_Jeff_the_Land_Shark_White_Waddle_Icon" src="https://github.com/user-attachments/assets/c5bd1699-0402-4165-80c5-474136b92528" />
+<img width="500" height="500" alt="CosInfo_-_Jeff_the_Land_Shark_Incognito_Dolphin_Full" src="https://github.com/user-attachments/assets/25b8c3d0-36ed-4234-99ca-901c6505f2ba" />
+<img width="499" height="499" alt="CosInfo_-_Jeff_the_Land_Shark_Gwenpool_Icon" src="https://github.com/user-attachments/assets/7daf8a4b-3f9e-4811-9cbd-21f19055a3c9" />
+<img width="768" height="768" alt="CosInfo_-_Jeff_the_Land_Shark_Green_Bill_Icon" src="https://github.com/user-attachments/assets/70e30b06-52cc-4cff-b3cc-40819e6f764f" />
+<img width="500" height="500" alt="CosInfo_-_Jeff_the_Land_Shark_Jeff-Pool_Icon" src="https://github.com/user-attachments/assets/8eea76dd-678e-462d-8540-7877b28c28bf" />
+<img width="500" height="500" alt="CosInfo_-_Jeff_the_Land_Shark_Jeff_O%27Lantern_Full" src="https://github.com/user-attachments/assets/99b84d91-f0c7-4f2f-8a3b-7437e697499b" />
+<img width="768" height="768" alt="CosInfo_-_Jeff_the_Land_Shark_Duck_Defender_Icon" src="https://github.com/user-attachments/assets/cade307a-308c-4970-8486-4edcbfedd16e" />
+<img width="532" height="532" alt="CosInfo_-_Jeff_the_Land_Shark_Powder_Pink_Icon" src="https://github.com/user-attachments/assets/5aaaf371-c95c-4a15-893d-834301a4de1a" />
+<img width="768" height="768" alt="CosInfo_-_Jeff_the_Land_Shark_Maid_to_Chomp_Icon" src="https://github.com/user-attachments/assets/1aba23c4-487f-4f59-8569-efd7a48e1e34" />
+<img width="500" height="500" alt="CosInfo_-_Jeff_the_Land_Shark_Magma_Menace_Icon" src="https://github.com/user-attachments/assets/cf23b2a1-5d83-4be3-bda0-e532e207382d" />
+<img width="500" height="500" alt="CosInfo_-_Jeff_the_Land_Shark_Rosy_Ruin_Icon" src="https://github.com/user-attachments/assets/63381359-b22d-445f-ae8d-3d28e7b0843e" />
+<img width="500" height="500" alt="CosInfo_-_Jeff_the_Land_Shark_Devil_Landshark_Icon" src="https://github.com/user-attachments/assets/6480c8c7-616c-4df5-87bf-1de921696d7f" />
+<img width="500" height="500" alt="CosInfo_-_Jeff_the_Land_Shark_Business_Shark_Icon" src="https://github.com/user-attachments/assets/89a5c8f9-6cbc-4147-a91a-1c30187cd536" />
+<img width="532" height="532" alt="CosInfo_-_Jeff_the_Land_Shark_Blue_Blizzard_Icon" src="https://github.com/user-attachments/assets/25659d5e-b46a-4173-a4e2-f923c9255995" />
+<img width="784" height="784" alt="CosInfo_-_Jeff_the_Land_Shark_Blue_Barrage_Icon" src="https://github.com/user-attachments/assets/4e13977c-0330-4ee6-b06c-d6f8663ec360" />
+<img width="768" height="768" alt="CosInfo_-_Jeff_the_Land_Shark_Adopted_Avenger_Icon" src="https://github.com/user-attachments/assets/fc2a8352-bc4b-47f5-b200-a83712c197e5" />
+<img width="500" height="500" alt="CosInfo_-_Jeff_the_Land_Shark_Cuddly_Fuzzlefin_Full" src="https://github.com/user-attachments/assets/911961d3-4f5a-4044-8f11-2bcd18017826" />
+<img width="500" height="500" alt="Jeff_the_Land_Shark_Hero_Portrait" src="https://github.com/user-attachments/assets/6b7e6204-0629-4e46-bb87-95f91c2c5c31" />
+<img width="500" height="500" alt="CosInfo_-_Jeff_the_Land_Shark_Devouring_Duo_Icon" src="https://github.com/user-attachments/assets/11891202-9578-4e81-9dc1-53478afd8518" />
     </p>
 </details>
 
