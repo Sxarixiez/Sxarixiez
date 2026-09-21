@@ -204,7 +204,14 @@
 <p align="center">
 <details>
   <summary>𝙎𝙃𝘼𝙍𝙆 𝙃𝙔𝙋𝙀𝙍𝙁𝙄𝙓𝘼𝙏𝙄𝙊𝙉 𝘽𝙊𝘼𝙍𝘿!!</summary>
-  <p align="center"><img width="99" height="56" alt="tumblr_d154103a89591adcc6d875be383dea0c_723eb5d0_100" src="https://github.com/user-attachments/assets/b9c97c59-0f74-4589-94e2-864fe4d10d16" />
+  <p align="center"><img width="465" height="262" alt="Jeff_the_Land_Shark_MVP_-_Master_of_the_Playground_Full" src="https://github.com/user-attachments/assets/03520bf1-2add-4c74-afd4-34eaec60729d" />
+<img width="398" height="398" alt="Champion_Icon_Jeff_the_Land_Shark_Animated" src="https://github.com/user-attachments/assets/652fed1c-71dc-4fdd-96bb-37822b5956ea" />
+<img width="99" height="56" alt="tumblr_f9a8e1d13e188e420cd06cee0ec50713_a8c3751a_100" src="https://github.com/user-attachments/assets/e03a1605-072b-4c80-adeb-dde226621901" />
+<img width="99" height="56" alt="tumblr_df131d00bd87eb3caf2fbb0267651974_37b0cb02_100" src="https://github.com/user-attachments/assets/79ba22e9-5f06-4039-a1fc-cc67e4d8ad58" />
+<img width="99" height="56" alt="tumblr_b2267c755349de9b66c770c320a90dfc_c7c0a744_100" src="https://github.com/user-attachments/assets/665b7e97-edde-48df-a323-3c46009989d7" />
+<img width="800" height="107" alt="tumblr_285ddd263c73c1dec6516b3398e1f1b3_c6031c17_1280" src="https://github.com/user-attachments/assets/9b44c2e7-7e0f-405e-9991-c264b84eed4b" />
+<img width="150" height="20" alt="tumblr_2dac7abaa6c89c0d9462a0d4e85f0838_4e1665e2_250" src="https://github.com/user-attachments/assets/c75bb1e4-9149-4e9e-b72d-1f438d0d5a2d" />
+<img width="150" height="20" alt="tumblr_1e4896c39f006e75b386c8e7fd8817d7_3fb6dab2_250" src="https://github.com/user-attachments/assets/b0e1f024-be69-4011-963c-bfbeafb4b05e" /><img width="99" height="56" alt="tumblr_d154103a89591adcc6d875be383dea0c_723eb5d0_100" src="https://github.com/user-attachments/assets/b9c97c59-0f74-4589-94e2-864fe4d10d16" />
 <img width="99" height="56" alt="tumblr_de955c97631c52f1c0a6168486272edb_f49f7c60_100" src="https://github.com/user-attachments/assets/da500d8c-726d-46de-9776-ca7677f610d4" />
 <img width="99" height="56" alt="tumblr_4c19cb0b8a2862cd2a9a2e1970aa0aa7_bd853cc8_100" src="https://github.com/user-attachments/assets/7a0a0558-5da8-43fb-9434-0b758d4fa90c" />
 <img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/38eb9e4d-7a83-46fc-b406-914fe3a36e1f" />
