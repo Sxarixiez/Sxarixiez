@@ -243,6 +243,14 @@
     </p>
 </details>
 
+<p align="center">
+<details>
+  <summary>𝙍𝙄𝙊𝙏'𝙎 𝙎𝙃𝘼𝙍𝙆 𝙏𝘼𝙉𝙆!!</summary>
+  <p align="center"><img width="245" height="245" alt="shark-great-white-shark" src="https://github.com/user-attachments/assets/9a605487-71d7-439d-9459-8973dc486664" />
+<img width="480" height="320" alt="shark-gif" src="https://github.com/user-attachments/assets/3468ad95-498c-4a38-8d59-38c364fc17e4" />
+    </p>
+</details>
+
 <img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/38eb9e4d-7a83-46fc-b406-914fe3a36e1f" />
 <img width="1320" height="100" alt="image" src="https://github.com/user-attachments/assets/da5cf577-91f1-4463-b2d9-26cca4f9e42e" />
 
