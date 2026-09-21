@@ -160,8 +160,20 @@
 <p align="center">
 <details>
   <summary>𝙈𝙀 𝘾𝙊𝙍𝙀!!</summary><img width="730" height="99" alt="image" src="https://github.com/user-attachments/assets/8bb95cc9-a20c-4ffb-a0b2-b0b8e6420ba3" />
+<p align="center"> 
 <img width="730" height="99" alt="image" src="https://github.com/user-attachments/assets/44cbadb7-81f0-4231-a54b-101250ac5e64" />
-<img width="66" height="31" alt="imvu-blinkies" src="https://github.com/user-attachments/assets/2825a3d7-a033-4f70-a06f-f6b45c1cd404" /> <img width="150" height="20" alt="glow-in-the-dark-glow" src="https://github.com/user-attachments/assets/ed772e22-d5ba-4c6e-b251-f860398fa1b0" /> <img width="150" height="20" alt="blinkies" src="https://github.com/user-attachments/assets/217e9fd7-0dfb-483e-a2b2-b51d71b2918f" /> <img width="177" height="32" alt="pizza-freak" src="https://github.com/user-attachments/assets/3fefebb6-a091-44f2-8975-0b588802178e" /><img width="150" height="20" alt="blinkies-blinkie" src="https://github.com/user-attachments/assets/fee547fa-073b-4103-8de9-7d2db132fe3a" /><img width="150" height="20" alt="science-science-lover" src="https://github.com/user-attachments/assets/0c7856ea-1265-4bcd-a42a-2b267cb7892e" />
+<p align="center"> 
+<img width="66" height="31" alt="imvu-blinkies" src="https://github.com/user-attachments/assets/2825a3d7-a033-4f70-a06f-f6b45c1cd404" /> 
+  <p align="center"> 
+  <img width="150" height="20" alt="glow-in-the-dark-glow" src="https://github.com/user-attachments/assets/ed772e22-d5ba-4c6e-b251-f860398fa1b0" /> 
+    <p align="center"> 
+  <img width="150" height="20" alt="blinkies" src="https://github.com/user-attachments/assets/217e9fd7-0dfb-483e-a2b2-b51d71b2918f" /> 
+  <p align="center">     
+  <img width="177" height="32" alt="pizza-freak" src="https://github.com/user-attachments/assets/3fefebb6-a091-44f2-8975-0b588802178e" /> 
+  <p align="center">   
+  <img width="150" height="20" alt="blinkies-blinkie" src="https://github.com/user-attachments/assets/fee547fa-073b-4103-8de9-7d2db132fe3a" />
+    <p align="center"> 
+  <img width="150" height="20" alt="science-science-lover" src="https://github.com/user-attachments/assets/0c7856ea-1265-4bcd-a42a-2b267cb7892e" />
   <p align="center"> 
   <img width="498" height="67" alt="blinkies (5)" src="https://github.com/user-attachments/assets/cf6d9bcd-7780-4c0b-a4ab-7235181e8332" />
 <img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/38eb9e4d-7a83-46fc-b406-914fe3a36e1f" />
