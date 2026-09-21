@@ -118,6 +118,11 @@
 <img width="771" height="158" alt="tumblr_bd0c1a3487679d9e382fa33957c6ae12_90882c1f_1280" src="https://github.com/user-attachments/assets/7666ef4f-0dfa-4f9a-8025-307ebab577b3" />
 <img width="600" height="80" alt="tumblr_41c5efc992e1c82b3e1c20c4b606abe7_7709586d_640" src="https://github.com/user-attachments/assets/cc074a24-c5fc-4371-83e7-06bc8cd3ac09" />
 <img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/38eb9e4d-7a83-46fc-b406-914fe3a36e1f" />
+<img width="39" height="18" alt="tumblr_0d781c940722606bc1c83fdd228d2fa1_261a18ab_75" src="https://github.com/user-attachments/assets/80b60afb-113f-40aa-998e-a574be2e9104" />
+<img width="39" height="18" alt="tumblr_12dc37a726fdb5f4fc92da8db4d4e4ae_5d30c0e0_75" src="https://github.com/user-attachments/assets/49e9f242-3413-4b8a-9e86-769af2466d64" />
+<img width="39" height="18" alt="tumblr_35ce611e3187bf1f7928f90f730343b3_90e6e3fb_75" src="https://github.com/user-attachments/assets/2f7869a2-ac3f-42b8-9a67-7e093b152ac9" />
+<img width="53" height="18" alt="tumblr_a1091e1e6c9394ae0f7f891ecbe428e5_0a9fdf13_75" src="https://github.com/user-attachments/assets/864340fb-efa1-413c-8aea-699d57365f9b" />
+<img width="100" height="36" alt="tumblr_f298704c9332a5dd2d676b8e6a72854a_03aa5d56_100" src="https://github.com/user-attachments/assets/18d1bfa1-f6c8-462f-891b-d6da1470a99d" />
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=wh95bd2d2nzt9nw0o7ozlsule&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)
   <p align="center"> 
