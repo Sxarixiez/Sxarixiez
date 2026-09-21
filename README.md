@@ -161,7 +161,9 @@
 <details>
   <summary>𝙈𝙀 𝘾𝙊𝙍𝙀!!</summary><img width="730" height="99" alt="image" src="https://github.com/user-attachments/assets/8bb95cc9-a20c-4ffb-a0b2-b0b8e6420ba3" />
 <img width="730" height="99" alt="image" src="https://github.com/user-attachments/assets/44cbadb7-81f0-4231-a54b-101250ac5e64" />
-<img width="66" height="31" alt="imvu-blinkies" src="https://github.com/user-attachments/assets/2825a3d7-a033-4f70-a06f-f6b45c1cd404" /> <img width="150" height="20" alt="glow-in-the-dark-glow" src="https://github.com/user-attachments/assets/ed772e22-d5ba-4c6e-b251-f860398fa1b0" /> <img width="150" height="20" alt="blinkies" src="https://github.com/user-attachments/assets/217e9fd7-0dfb-483e-a2b2-b51d71b2918f" /> <img width="177" height="32" alt="pizza-freak" src="https://github.com/user-attachments/assets/3fefebb6-a091-44f2-8975-0b588802178e" /><img width="150" height="20" alt="blinkies-blinkie" src="https://github.com/user-attachments/assets/fee547fa-073b-4103-8de9-7d2db132fe3a" /><img width="150" height="20" alt="science-science-lover" src="https://github.com/user-attachments/assets/0c7856ea-1265-4bcd-a42a-2b267cb7892e" /><img width="498" height="67" alt="blinkies (5)" src="https://github.com/user-attachments/assets/cf6d9bcd-7780-4c0b-a4ab-7235181e8332" />
+<img width="66" height="31" alt="imvu-blinkies" src="https://github.com/user-attachments/assets/2825a3d7-a033-4f70-a06f-f6b45c1cd404" /> <img width="150" height="20" alt="glow-in-the-dark-glow" src="https://github.com/user-attachments/assets/ed772e22-d5ba-4c6e-b251-f860398fa1b0" /> <img width="150" height="20" alt="blinkies" src="https://github.com/user-attachments/assets/217e9fd7-0dfb-483e-a2b2-b51d71b2918f" /> <img width="177" height="32" alt="pizza-freak" src="https://github.com/user-attachments/assets/3fefebb6-a091-44f2-8975-0b588802178e" /><img width="150" height="20" alt="blinkies-blinkie" src="https://github.com/user-attachments/assets/fee547fa-073b-4103-8de9-7d2db132fe3a" /><img width="150" height="20" alt="science-science-lover" src="https://github.com/user-attachments/assets/0c7856ea-1265-4bcd-a42a-2b267cb7892e" />
+  <p align="center"> 
+  <img width="498" height="67" alt="blinkies (5)" src="https://github.com/user-attachments/assets/cf6d9bcd-7780-4c0b-a4ab-7235181e8332" />
 <img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/38eb9e4d-7a83-46fc-b406-914fe3a36e1f" />
 <img width="32" height="32" alt="tumblr_5135449061754e717a43667eda0905d6_0cb84951_75" src="https://github.com/user-attachments/assets/a38d368f-ee97-4338-8646-c329d971e5e7" />
 <img width="114" height="18" alt="tumblr_b7b040961f29bcdd5aa0b38d336a89be_e20d4ea2_250 (1)" src="https://github.com/user-attachments/assets/ab41c4fb-a2de-418d-921d-67d2847e7b53" /><img width="75" height="18" alt="tumblr_db46a9390b149b2fe0d5ebd16e99f9c7_5285ad17_75" src="https://github.com/user-attachments/assets/b4502a0f-f300-40d7-a7f1-36310c7d4f61" />
@@ -184,14 +186,23 @@
 <img width="150" height="150" alt="beating-heart-kids-choice-awards" src="https://github.com/user-attachments/assets/28ca0a9b-50f5-454a-8ea0-ac39da3ef21e" /><img width="150" height="150" alt="postal-postal-dude" src="https://github.com/user-attachments/assets/15225e33-d9ba-4303-bfb6-741df9a1b5a8" />
 <img width="150" height="150" alt="phisnom-phisnom-dance" src="https://github.com/user-attachments/assets/77fc10d4-6aec-40b0-ad6f-925848e840ed" />
 <img width="150" height="150" alt="sanford-and-deimos-madness" src="https://github.com/user-attachments/assets/5b648f2f-480a-415f-acef-eaab75a82d0a" />
+<p align="center"> 
 <img width="251" height="251" alt="tmnt-rot-tmnt" src="https://github.com/user-attachments/assets/1e4cc5d6-8320-4d7f-bf2a-d9336ab56f59" />
+<p align="center"> 
 <img width="251" height="251" alt="edward-savage-kawaii" src="https://github.com/user-attachments/assets/b08759fe-6416-4757-a1fa-216a4997759d" /> 
+<p align="center"> 
 <img width="498" height="281" alt="awaria" src="https://github.com/user-attachments/assets/0d3ebb27-2af2-4db4-bb52-f78f2813cd33" />
+<p align="center"> 
 <img width="498" height="498" alt="burning-spice-burning-spice-cookie" src="https://github.com/user-attachments/assets/a6c3dc1f-a9fd-45c7-a5b1-f7d4e36b8f97" />
+<p align="center"> 
 <img width="498" height="374" alt="ena-ena-dream-bbq (1)" src="https://github.com/user-attachments/assets/9864a370-3933-4050-acdc-31df0713234a" />
+<p align="center"> 
 <img width="498" height="391" alt="burning-spice-cookie-cookie-run-kingdom" src="https://github.com/user-attachments/assets/aa4ce980-21bc-42cb-94d7-dac97ddcaca1" />
+<p align="center"> 
 <img width="498" height="249" alt="banner-para-lavaso-yipi" src="https://github.com/user-attachments/assets/05b6b257-379b-4330-9443-cf3ea6f31296" />
+<p align="center"> 
 <img width="498" height="498" alt="uzi-murder-drones" src="https://github.com/user-attachments/assets/d0fcdc47-a6c5-4146-b17c-513c84a9c3af" />
+<p align="center"> 
 <img width="498" height="498" alt="jacket-from-hotline-miami" src="https://github.com/user-attachments/assets/5280c8cc-fcb0-4add-b226-27bbb6efe650" />
 <img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/38eb9e4d-7a83-46fc-b406-914fe3a36e1f" />
 <img width="150" height="150" alt="touhou-touhou-project" src="https://github.com/user-attachments/assets/41f9a8b0-d9cc-4f91-bf9b-b9f0eea8401f" />
