@@ -197,6 +197,7 @@
 <img width="719" height="720" alt="indir - 2026-09-20T183005 915" src="https://github.com/user-attachments/assets/249873e4-f229-4729-b4ac-4284e5f38ea4" />
 <img width="498" height="498" alt="poma-pon-pomapon (1)" src="https://github.com/user-attachments/assets/7219079d-5745-48d9-aed1-17bef9993979" />
 <img width="498" height="498" alt="poma-pon-pomapon" src="https://github.com/user-attachments/assets/068e24c9-ce18-448b-ad36-fea315e7b62f" />
+<img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/38eb9e4d-7a83-46fc-b406-914fe3a36e1f" />
 <img width="128" height="128" alt="communityIcon_jel4c2jzfrqd1" src="https://github.com/user-attachments/assets/2d82e961-5d12-4959-a9bc-ea0f7c44ab56" />
     </p>
 </details>
