@@ -117,9 +117,8 @@
 <img width="800" height="162" alt="tumblr_9926464f8c23c7c7c700b1e6ef2530eb_0eff44ca_1280" src="https://github.com/user-attachments/assets/c883e52f-c811-4c04-9c6f-a04bcf3f03cf" />
 <img width="771" height="158" alt="tumblr_bd0c1a3487679d9e382fa33957c6ae12_90882c1f_1280" src="https://github.com/user-attachments/assets/7666ef4f-0dfa-4f9a-8025-307ebab577b3" />
 <img width="600" height="80" alt="tumblr_41c5efc992e1c82b3e1c20c4b606abe7_7709586d_640" src="https://github.com/user-attachments/assets/cc074a24-c5fc-4371-83e7-06bc8cd3ac09" />
-<p align="center"> 
 
-  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=wh95bd2d2nzt9nw0o7ozlsule&cover_image=true&theme=Natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=wh95bd2d2nzt9nw0o7ozlsule&cover_image=true&theme=Natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)
   <p align="center"> 
   <img width="150" height="150" alt="ena-ena-dream-bbq" src="https://github.com/user-attachments/assets/055e9a36-9acd-4110-97c2-455aa5868533" />  
   <p align="center">   
