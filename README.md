@@ -183,7 +183,6 @@
 <img width="431" height="431" alt="Ekran görüntüsü 2026-09-20 033814" src="https://github.com/user-attachments/assets/9248855f-ab47-4c1e-bfd9-fe234873cbf3" />
 <img width="432" height="431" alt="Ekran görüntüsü 2026-09-20 033742" src="https://github.com/user-attachments/assets/bd5de249-a5d2-4fdb-9293-f11b78fa6f67" />
 <img width="431" height="431" alt="Ekran görüntüsü 2026-09-20 033727" src="https://github.com/user-attachments/assets/577b7e41-7967-47b4-8276-a347e3d15259" />
-<img width="128" height="128" alt="communityIcon_jel4c2jzfrqd1" src="https://github.com/user-attachments/assets/2d82e961-5d12-4959-a9bc-ea0f7c44ab56" />
 <img width="1800" height="1800" alt="bafkreihny3ftch7mg7i2fzijtalbnkyogrbtidaxuuujq5flf7wl6cpola" src="https://github.com/user-attachments/assets/16c5f7ab-5290-4120-b1f6-a14d88cd52c2" />
 <img width="3000" height="1000" alt="bafkreidbzd3khiwafsp3aom6bpq7deyceyjm6olfabjhaoslyhulm36sca" src="https://github.com/user-attachments/assets/d53242df-f263-4876-a070-8d9defa44dfb" />
 <img width="1829" height="2000" alt="bafkreibalxk7jal3s4kvojhb2d7q2psk46nc7eu5gd3xkhtyv2ax2zwo3u" src="https://github.com/user-attachments/assets/35606e9f-93b0-4a6b-b210-1ff28e44d586" />
@@ -197,6 +196,7 @@
 <img width="719" height="720" alt="indir - 2026-09-20T183005 915" src="https://github.com/user-attachments/assets/249873e4-f229-4729-b4ac-4284e5f38ea4" />
 <img width="498" height="498" alt="poma-pon-pomapon (1)" src="https://github.com/user-attachments/assets/7219079d-5745-48d9-aed1-17bef9993979" />
 <img width="498" height="498" alt="poma-pon-pomapon" src="https://github.com/user-attachments/assets/068e24c9-ce18-448b-ad36-fea315e7b62f" />
+<img width="128" height="128" alt="communityIcon_jel4c2jzfrqd1" src="https://github.com/user-attachments/assets/2d82e961-5d12-4959-a9bc-ea0f7c44ab56" />
     </p>
 </details>
 
