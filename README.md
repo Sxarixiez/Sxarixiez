@@ -231,7 +231,7 @@
 <img width="150" height="150" alt="CosInfo_-_Jeff_the_Land_Shark_Cuddly_Fuzzlefin_Full" src="https://github.com/user-attachments/assets/911961d3-4f5a-4044-8f11-2bcd18017826" />
 <img width="150" height="150" alt="Jeff_the_Land_Shark_Hero_Portrait" src="https://github.com/user-attachments/assets/6b7e6204-0629-4e46-bb87-95f91c2c5c31" />
 <img width="150" height="150" alt="CosInfo_-_Jeff_the_Land_Shark_Devouring_Duo_Icon" src="https://github.com/user-attachments/assets/11891202-9578-4e81-9dc1-53478afd8518" />
-<img width="1472" height="1962" alt="Jeff_the_Land_Shark_Prestige_Artwork" src="https://github.com/user-attachments/assets/b82984cd-4475-4f7c-801e-f87cf5d9649a" />
+<img width="1358" height="1920" alt="Jeff_the_Land_Shark_Main_Page_Portrait" src="https://github.com/user-attachments/assets/c32f01fd-fb53-4a52-b6e8-89eb4892cae0" />
     </p>
 </details>
 
