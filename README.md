@@ -117,7 +117,7 @@
 <img width="800" height="162" alt="tumblr_9926464f8c23c7c7c700b1e6ef2530eb_0eff44ca_1280" src="https://github.com/user-attachments/assets/c883e52f-c811-4c04-9c6f-a04bcf3f03cf" />
 <img width="771" height="158" alt="tumblr_bd0c1a3487679d9e382fa33957c6ae12_90882c1f_1280" src="https://github.com/user-attachments/assets/7666ef4f-0dfa-4f9a-8025-307ebab577b3" />
 <img width="600" height="80" alt="tumblr_41c5efc992e1c82b3e1c20c4b606abe7_7709586d_640" src="https://github.com/user-attachments/assets/cc074a24-c5fc-4371-83e7-06bc8cd3ac09" />
-
+<img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/38eb9e4d-7a83-46fc-b406-914fe3a36e1f" />
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=wh95bd2d2nzt9nw0o7ozlsule&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)
   <p align="center"> 
   <img width="150" height="150" alt="poma-pon-pomapon" src="https://github.com/user-attachments/assets/bcf72d6f-f26f-404b-93e5-f9d548485e3a" />
