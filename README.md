@@ -120,13 +120,8 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=wh95bd2d2nzt9nw0o7ozlsule&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)
   <p align="center"> 
-  <img width="300" height="40" alt="sick-hell" src="https://github.com/user-attachments/assets/d9b9625d-56e3-4dde-9cb7-d2aea0708832" />
- <p align="center">    
-  <img width="99" height="56" alt="blinkies-hatsune-miku" src="https://github.com/user-attachments/assets/486dd61f-f13f-459a-a019-ee8b61ad70cf" />
- <p align="center"> 
-  <img width="99" height="56" alt="blinkies (7)" src="https://github.com/user-attachments/assets/377295de-09d3-47bb-a154-8f88f21d7bfe" />
-   <p align="center"> 
-   <img width="100" height="50" alt="blinkies-needy-streamer-overload" src="https://github.com/user-attachments/assets/e97e1305-4845-4dc4-866d-b77e21d71243" />
+  <img width="498" height="498" alt="poma-pon-pomapon" src="https://github.com/user-attachments/assets/bcf72d6f-f26f-404b-93e5-f9d548485e3a" />
+    
 <img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/38eb9e4d-7a83-46fc-b406-914fe3a36e1f" />
 <p align="center">
   <img width="477" height="100" alt="image" src="https://github.com/user-attachments/assets/73fbb0a9-e1ab-4da3-be00-8f0045882b1c" />
