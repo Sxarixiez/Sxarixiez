@@ -120,7 +120,7 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=wh95bd2d2nzt9nw0o7ozlsule&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)
   <p align="center"> 
-  <img width="498" height="498" alt="poma-pon-pomapon" src="https://github.com/user-attachments/assets/bcf72d6f-f26f-404b-93e5-f9d548485e3a" />
+  <img width="150" height="150" alt="poma-pon-pomapon" src="https://github.com/user-attachments/assets/bcf72d6f-f26f-404b-93e5-f9d548485e3a" />
     
 <img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/38eb9e4d-7a83-46fc-b406-914fe3a36e1f" />
 <p align="center">
