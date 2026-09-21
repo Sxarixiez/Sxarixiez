@@ -246,7 +246,7 @@
 <p align="center">
 <details>
   <summary>𝙍𝙄𝙊𝙏'𝙎 𝙎𝙃𝘼𝙍𝙆 𝙏𝘼𝙉𝙆!!</summary>
-  <p align="center"><img width="385" height="29" alt="tumblr_860eb349e1cb530d5d83cd8d270aa04c_6db6f4ae_400" src="https://github.com/user-attachments/assets/c252d5e0-a076-4294-acd1-104d1706fe0d" />
+  <p align="center"><img width="480" height="29" alt="tumblr_860eb349e1cb530d5d83cd8d270aa04c_6db6f4ae_400" src="https://github.com/user-attachments/assets/c252d5e0-a076-4294-acd1-104d1706fe0d" />
 <img width="480" height="320" alt="shark-gif" src="https://github.com/user-attachments/assets/3468ad95-498c-4a38-8d59-38c364fc17e4" />
     </p>
 </details>
