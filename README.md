@@ -119,6 +119,7 @@
 <img width="600" height="80" alt="tumblr_41c5efc992e1c82b3e1c20c4b606abe7_7709586d_640" src="https://github.com/user-attachments/assets/cc074a24-c5fc-4371-83e7-06bc8cd3ac09" />
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=wh95bd2d2nzt9nw0o7ozlsule&cover_image=true&theme=Natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)
+
   <p align="center"> 
   <img width="150" height="150" alt="ena-ena-dream-bbq" src="https://github.com/user-attachments/assets/055e9a36-9acd-4110-97c2-455aa5868533" />  
   <p align="center">   
