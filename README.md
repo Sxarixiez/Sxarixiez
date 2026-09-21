@@ -122,7 +122,7 @@
 <img width="39" height="18" alt="tumblr_12dc37a726fdb5f4fc92da8db4d4e4ae_5d30c0e0_75" src="https://github.com/user-attachments/assets/49e9f242-3413-4b8a-9e86-769af2466d64" />
 <img width="39" height="18" alt="tumblr_35ce611e3187bf1f7928f90f730343b3_90e6e3fb_75" src="https://github.com/user-attachments/assets/2f7869a2-ac3f-42b8-9a67-7e093b152ac9" />
 <img width="53" height="18" alt="tumblr_a1091e1e6c9394ae0f7f891ecbe428e5_0a9fdf13_75" src="https://github.com/user-attachments/assets/864340fb-efa1-413c-8aea-699d57365f9b" />
-<img width="800" height="120" alt="tumblr_79bd78c78b2b22651830c7c352a77d8f_3170e77d_500" src="https://github.com/user-attachments/assets/27587b44-09a7-4421-ab99-4e488680c09f" />
+<img width="800" height="166" alt="tumblr_79bd78c78b2b22651830c7c352a77d8f_3170e77d_500" src="https://github.com/user-attachments/assets/27587b44-09a7-4421-ab99-4e488680c09f" />
 <img width="496" height="101" alt="tumblr_167081ce937aa5998454ec7e6cf677f4_ddf1b9b2_500" src="https://github.com/user-attachments/assets/c073cc6a-1e65-4175-9f4a-64b928f464a5" />
 <img width="496" height="101" alt="tumblr_81f949ddee648e7cf134bd20b45a00e9_dd713f10_500" src="https://github.com/user-attachments/assets/3d196ac6-fb5a-4193-a7e8-8d8d9a4d9240" />
 
@@ -130,7 +130,8 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=wh95bd2d2nzt9nw0o7ozlsule&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)
   <p align="center"> 
   <img width="150" height="150" alt="tumblr_d7213723714ae36d938f98cdb8ecfd20_1903e8e8_250" src="https://github.com/user-attachments/assets/86808adf-8e5c-4292-be81-c4e6f4c4ce15" />
-<img width="150" height="20" alt="tumblr_198b4d9218043f97a686ec709394986c_7fac8a4a_250" src="https://github.com/user-attachments/assets/2b573d71-d2bf-4987-9488-87fb2df49f92" />
+  <p align="center"> 
+  <img width="150" height="20" alt="tumblr_198b4d9218043f97a686ec709394986c_7fac8a4a_250" src="https://github.com/user-attachments/assets/2b573d71-d2bf-4987-9488-87fb2df49f92" />
     
 <img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/38eb9e4d-7a83-46fc-b406-914fe3a36e1f" />
 <p align="center">
