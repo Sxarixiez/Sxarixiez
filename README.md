@@ -204,7 +204,7 @@
 <p align="center">
 <details>
   <summary>𝙎𝙃𝘼𝙍𝙆 𝙃𝙔𝙋𝙀𝙍𝙁𝙄𝙓𝘼𝙏𝙄𝙊𝙉 𝘽𝙊𝘼𝙍𝘿!!</summary>
-  <p align="center"><img width="465" height="262" alt="Jeff_the_Land_Shark_MVP_-_Master_of_the_Playground_Full" src="https://github.com/user-attachments/assets/03520bf1-2add-4c74-afd4-34eaec60729d" />
+  <p align="center"><img width="1280" height="262" alt="Jeff_the_Land_Shark_MVP_-_Master_of_the_Playground_Full" src="https://github.com/user-attachments/assets/03520bf1-2add-4c74-afd4-34eaec60729d" />
 <img width="150" height="20" alt="tumblr_2dac7abaa6c89c0d9462a0d4e85f0838_4e1665e2_250" src="https://github.com/user-attachments/assets/c75bb1e4-9149-4e9e-b72d-1f438d0d5a2d" />
 <img width="150" height="20" alt="tumblr_1e4896c39f006e75b386c8e7fd8817d7_3fb6dab2_250" src="https://github.com/user-attachments/assets/b0e1f024-be69-4011-963c-bfbeafb4b05e" />
 <img width="800" height="107" alt="tumblr_285ddd263c73c1dec6516b3398e1f1b3_c6031c17_1280" src="https://github.com/user-attachments/assets/9b44c2e7-7e0f-405e-9991-c264b84eed4b" />
