@@ -119,6 +119,7 @@
 <img width="600" height="80" alt="tumblr_41c5efc992e1c82b3e1c20c4b606abe7_7709586d_640" src="https://github.com/user-attachments/assets/cc074a24-c5fc-4371-83e7-06bc8cd3ac09" />
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=wh95bd2d2nzt9nw0o7ozlsule&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)
+  <p align="center"> 
   <img width="300" height="40" alt="sick-hell" src="https://github.com/user-attachments/assets/d9b9625d-56e3-4dde-9cb7-d2aea0708832" />
  <p align="center">    
   <img width="99" height="56" alt="blinkies-hatsune-miku" src="https://github.com/user-attachments/assets/486dd61f-f13f-459a-a019-ee8b61ad70cf" />
