@@ -2,7 +2,7 @@
 <img width="1500" height="80" alt="tumblr_25178745ab37adba9c3bcc64e408cc86_e944502f_2048" src="https://github.com/user-attachments/assets/505b70ef-cd07-426d-9d74-02c0e81d7fb8" />
 <img width="848" height="192" alt="Jeff_the_Land_Shark_Full_Nameplate_-_Devouring_Duo" src="https://github.com/user-attachments/assets/3ea4b9fe-7f5a-47a2-a1d1-200e269efd40" />
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=wh95bd2d2nzt9nw0o7ozlsule&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=wh95bd2d2nzt9nw0o7ozlsule&cover_image=true&theme=natemoo-re&show_offline=false&background_color=8FFE09&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)
 
 <p align="center"> 
 𝗧𝗵𝗲 𝗕𝗶𝗴𝗴𝗲𝘀𝘁 𝗠𝘂𝗹𝘁𝗶𝗳𝗮𝗻𝗱𝗼𝗺𝗲𝗿 𝘆𝗼𝘂'𝘃𝗲 𝗲𝘃𝗲𝗿 𝘀𝗲𝗲𝗻 𝗛𝗜 𝗜𝗠 𝗦𝗣𝗢𝗞𝗘 𝗜𝗥𝗟!!𝟭‼️‼️‼️🍕🧪
