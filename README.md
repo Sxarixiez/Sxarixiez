@@ -286,7 +286,20 @@
 
 <p align="center">
 <details>
-  <summary>𝙈𝙀 𝘾𝙊𝙍𝙀!!</summary><img width="730" height="99" alt="image" src="https://github.com/user-attachments/assets/8bb95cc9-a20c-4ffb-a0b2-b0b8e6420ba3" />
+  <summary>𝙈𝙀 𝘾𝙊𝙍𝙀!!</summary><img width="250" height="250" alt="tumblr_f62daa2774f79236f23c9d22e96d3784_be62e78d_250" src="https://github.com/user-attachments/assets/a3efd0ed-d708-48f7-8ef3-1e037ca92cfe" />
+<img width="250" height="250" alt="tumblr_f9d1d1843b8a3afae604632cdb41a868_198c6573_250" src="https://github.com/user-attachments/assets/969e496c-7806-47e6-b65b-9b4261932b67" />
+<img width="640" height="360" alt="tumblr_55f1a07f144f8746d7f7e2ab1c1cd193_70216ef3_640" src="https://github.com/user-attachments/assets/0df8763b-6b3f-4376-8b5e-0d669e56c1dc" />
+<img width="320" height="180" alt="tumblr_059089c534713d811d7f752602732ace_9f8bed1c_400" src="https://github.com/user-attachments/assets/3a50d5d2-7585-4e95-8ee4-74bf2dcaba56" />
+<img width="1940" height="500" alt="tumblr_b1e49400248b3dbb148924852d7414f4_e4e4f2d4_2048" src="https://github.com/user-attachments/assets/64e67562-5b9f-4086-b097-f79bc68faac6" />
+<img width="1430" height="392" alt="tumblr_9a2135ffcc871db7ccba71e242c90f1b_38997401_2048" src="https://github.com/user-attachments/assets/ca210b85-3ffb-460c-aa4d-30a886b24942" />
+<img width="1430" height="392" alt="tumblr_5fe61e2afc38c95a202f39d1dbefd47d_cb1e1159_2048" src="https://github.com/user-attachments/assets/f2d4e852-cce9-451b-9fc0-e116e0561525" />
+<img width="500" height="285" alt="tumblr_2323d3bc1bf236d8dd50c46fb6d961d5_710ff2c7_500" src="https://github.com/user-attachments/assets/f3cded33-7d8d-48f9-93e1-b96b16335a62" />
+<img width="1940" height="1100" alt="tumblr_133b48937cb61eb8eb8f01d9328b1864_1123b246_2048" src="https://github.com/user-attachments/assets/0887ce67-3d38-4038-9f64-9771a6838bc2" />
+<img width="480" height="94" alt="tumblr_42c4c074449dc27c68c36df805f9876e_ef94c2ef_500" src="https://github.com/user-attachments/assets/d0969a10-49b2-470a-ad62-4f68dc38a3d4" />
+<img width="1877" height="2048" alt="tumblr_4366b5f4f5c709a09c598ff4639b9be8_6f479d62_2048" src="https://github.com/user-attachments/assets/71d589fc-6a06-4d41-bc92-41c6f0f88ed3" />
+<img width="498" height="234" alt="v1-v2" src="https://github.com/user-attachments/assets/f81c2cdc-653b-47bf-a349-8138a6f7e624" />
+<img width="402" height="413" alt="ultrakill" src="https://github.com/user-attachments/assets/51ef06a0-5900-4b45-be50-e21739387cac" />
+<img width="220" height="166" alt="watch-you-tone-machine-boi" src="https://github.com/user-attachments/assets/f7f923a7-c02e-4689-951c-da50a2077802" /><img width="730" height="99" alt="image" src="https://github.com/user-attachments/assets/8bb95cc9-a20c-4ffb-a0b2-b0b8e6420ba3" />
 <p align="center"> 
 <img width="730" height="99" alt="image" src="https://github.com/user-attachments/assets/44cbadb7-81f0-4231-a54b-101250ac5e64" />
 <p align="center"> 
