@@ -1,6 +1,3 @@
-<img width="1800" height="1013" alt="tumblr_080b0bebc5f5ca0d98d601560a38b758_151cde9c_2048" src="https://github.com/user-attachments/assets/ffa59cc9-2d7a-42dd-a60c-0ec0545873d5" />
-<img width="730" height="99" alt="tumblr_a253bb4ef6d7659361e9a16418b421aa_57f798ca_1280" src="https://github.com/user-attachments/assets/9ff92824-b8b1-4065-bc90-9129ce5714aa" />
-<img width="150" height="20" alt="tumblr_a6647751c0f409389247c99353239013_dbe68c77_250" src="https://github.com/user-attachments/assets/936e850f-07b0-486a-8439-b73b6c3392d5" />
 <img width="1280" height="720" alt="tumblr_49368e36d4ed71092bfe205638124c7b_14f85b55_1280" src="https://github.com/user-attachments/assets/c8e993d9-4289-4060-95a1-224a2e76a402" />
 <img width="1500" height="80" alt="tumblr_25178745ab37adba9c3bcc64e408cc86_e944502f_2048" src="https://github.com/user-attachments/assets/505b70ef-cd07-426d-9d74-02c0e81d7fb8" />
 <img width="848" height="192" alt="Jeff_the_Land_Shark_Full_Nameplate_-_Devouring_Duo" src="https://github.com/user-attachments/assets/3ea4b9fe-7f5a-47a2-a1d1-200e269efd40" />
@@ -132,6 +129,7 @@
 <img width="150" height="20" alt="tumblr_97180ef550bcd4812564a2afacee4725_3e473857_250" src="https://github.com/user-attachments/assets/9c94ca3d-3df7-4405-ad42-7cccd95373ee" />
 <img width="150" height="20" alt="tumblr_c2d01ad72880317a648cb544053b9900_fd45c357_250" src="https://github.com/user-attachments/assets/1b0ecf02-ab44-4896-b38d-cc60c7f1e204" />
 <img width="150" height="20" alt="tumblr_fb365439b2e1139ac9d1278388167f6a_9514c913_250" src="https://github.com/user-attachments/assets/20e8f8d5-550d-4ed6-a18e-7b73414cead8" />
+<img width="150" height="20" alt="tumblr_a6647751c0f409389247c99353239013_dbe68c77_250" src="https://github.com/user-attachments/assets/936e850f-07b0-486a-8439-b73b6c3392d5" />
 <img width="396" height="40" alt="they-them" src="https://github.com/user-attachments/assets/c5e5143e-6337-4aea-a3ad-fc3269f04d45" />
 <img width="350" height="19" alt="tumblr_e9a0178c836ab965c132fefb4f4caa9c_296b77eb_400" src="https://github.com/user-attachments/assets/6262722a-d5e8-4808-996a-67abea32a2e2" />
 <img width="350" height="19" alt="tumblr_9b9c4fc56febb90550021a2796b987b3_fef44f4c_400" src="https://github.com/user-attachments/assets/3efc706b-c5fd-4789-8dc3-ba0f2e42950c" />
@@ -156,6 +154,7 @@
 <img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/38eb9e4d-7a83-46fc-b406-914fe3a36e1f" />
 <p align="center">
   <img width="477" height="100" alt="image" src="https://github.com/user-attachments/assets/73fbb0a9-e1ab-4da3-be00-8f0045882b1c" />
+<img width="1800" height="1013" alt="tumblr_080b0bebc5f5ca0d98d601560a38b758_151cde9c_2048" src="https://github.com/user-attachments/assets/ffa59cc9-2d7a-42dd-a60c-0ec0545873d5" />
 </p> 
 <p align="center">
 𝙃𝙞 𝙄'𝙢 𝙎𝘾𝘼𝙍 / 𝙍𝙄𝙊𝙏 / 𝘾𝙊𝙕𝙈𝙊, 𝙢𝙞𝙡𝙚𝙨, 𝙢𝙞𝙡𝙡𝙚𝙧, 𝙖𝙧𝙖𝙘𝙝𝙣𝙖 𝙄 𝙝𝙖𝙫𝙚 𝙨𝙤 𝙢𝙖𝙣𝙮 𝙣𝙖𝙢𝙚𝙨 𝙘𝙖𝙡𝙡 𝙢𝙚 𝙬𝙝𝙖𝙩𝙚𝙫𝙚𝙧 𝙮𝙤𝙪 𝙬𝙖𝙣𝙩 𝙤𝙧 𝙗𝙪𝙧𝙖𝙠 𝙗𝙘𝙯 𝙄'𝙢 𝙛𝙧𝙤𝙢 𝙩𝙪𝙧𝙠𝙞𝙮𝙚  
@@ -294,7 +293,7 @@
 
 <p align="center">
 <details>
-  <summary>𝙈𝙀 𝘾𝙊𝙍𝙀!!</summary>
+  <summary>𝙈𝙀 𝘾𝙊𝙍𝙀!!</summary><img width="730" height="99" alt="tumblr_a253bb4ef6d7659361e9a16418b421aa_57f798ca_1280" src="https://github.com/user-attachments/assets/9ff92824-b8b1-4065-bc90-9129ce5714aa" />
 <p align="center">  
 <img width="250" height="250" alt="tumblr_f62daa2774f79236f23c9d22e96d3784_be62e78d_250" src="https://github.com/user-attachments/assets/a3efd0ed-d708-48f7-8ef3-1e037ca92cfe" />
 <p align="center">
