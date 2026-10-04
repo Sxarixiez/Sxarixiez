@@ -182,6 +182,9 @@
 𝐈'𝐦 𝐧𝐨𝐭 𝐢𝐧𝐭𝐞𝐫𝐚𝐜𝐭𝐢𝐧𝐠 𝐰𝐢𝐭𝐡 𝐭𝐡𝐞 𝐡𝐚𝐳𝐛𝐢𝐧/𝐡𝐞𝐥𝐥𝐮𝐯𝐚 , 𝐝𝐢𝐠𝐢𝐭𝐚𝐥 𝐜𝐢𝐫𝐜𝐮𝐬, 𝐝𝐚𝐧𝐝𝐲'𝐬 𝐰𝐨𝐫𝐥𝐝, 𝐟𝐨𝐫𝐬𝐚𝐤𝐞𝐧 𝐟𝐚𝐧𝐝𝐨𝐦 𝐢𝐟 𝐲𝐨𝐮 𝐚𝐬𝐤 𝐚𝐧𝐝 𝐈 𝐝𝐨𝐧𝐭 𝐬𝐮𝐩𝐩𝐨𝐫𝐭 𝐯𝐢𝐯𝐳𝐢𝐞 𝐢𝐧 𝐚𝐧𝐲 𝐰𝐚𝐲 𝐈 𝐣𝐮𝐬𝐭 𝐥𝐨𝐯𝐞 𝐯𝐨𝐱 𝐩𝐥𝐞𝐚𝐬𝐞
 
 <p align="center">
+<img width="99" height="56" alt="tumblr_2636db0dbf474a033840384cd68f7b7b_f44390bd_100" src="https://github.com/user-attachments/assets/e2af2733-eec7-4ecc-b113-4110b36c8335" />
+
+<p align="center">
 <details>
   <summary>ɪᴍᴘᴏʀᴛᴀɴᴛ!!</summary>
   <p align="center">
@@ -303,7 +306,7 @@
 
 <p align="center">
 <details>
-  <summary>𝙈𝙀 𝘾𝙊𝙍𝙀!!</summary><img width="99" height="56" alt="tumblr_2636db0dbf474a033840384cd68f7b7b_f44390bd_100" src="https://github.com/user-attachments/assets/e2af2733-eec7-4ecc-b113-4110b36c8335" /><img width="730" height="99" alt="tumblr_a253bb4ef6d7659361e9a16418b421aa_57f798ca_1280" src="https://github.com/user-attachments/assets/9ff92824-b8b1-4065-bc90-9129ce5714aa" />
+  <summary>𝙈𝙀 𝘾𝙊𝙍𝙀!!</summary><img width="730" height="99" alt="tumblr_a253bb4ef6d7659361e9a16418b421aa_57f798ca_1280" src="https://github.com/user-attachments/assets/9ff92824-b8b1-4065-bc90-9129ce5714aa" />
 <p align="center">  
 <img width="250" height="250" alt="tumblr_f62daa2774f79236f23c9d22e96d3784_be62e78d_250" src="https://github.com/user-attachments/assets/a3efd0ed-d708-48f7-8ef3-1e037ca92cfe" />
 <p align="center">
