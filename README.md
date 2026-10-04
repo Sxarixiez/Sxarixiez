@@ -1,5 +1,3 @@
-<img width="99" height="56" alt="tumblr_2636db0dbf474a033840384cd68f7b7b_f44390bd_100" src="https://github.com/user-attachments/assets/e2af2733-eec7-4ecc-b113-4110b36c8335" />
-<img width="100" height="54" alt="tumblr_ae8abea342c8f91da674a232fd6eee7c_d9aa48f2_100" src="https://github.com/user-attachments/assets/f03e4726-c7ac-42e9-a5d8-1b9d41f10822" />
 <img width="1280" height="720" alt="tumblr_49368e36d4ed71092bfe205638124c7b_14f85b55_1280" src="https://github.com/user-attachments/assets/c8e993d9-4289-4060-95a1-224a2e76a402" />
 <img width="1500" height="80" alt="tumblr_25178745ab37adba9c3bcc64e408cc86_e944502f_2048" src="https://github.com/user-attachments/assets/505b70ef-cd07-426d-9d74-02c0e81d7fb8" />
 <img width="848" height="192" alt="Jeff_the_Land_Shark_Full_Nameplate_-_Devouring_Duo" src="https://github.com/user-attachments/assets/3ea4b9fe-7f5a-47a2-a1d1-200e269efd40" />
@@ -305,7 +303,7 @@
 
 <p align="center">
 <details>
-  <summary>𝙈𝙀 𝘾𝙊𝙍𝙀!!</summary><img width="730" height="99" alt="tumblr_a253bb4ef6d7659361e9a16418b421aa_57f798ca_1280" src="https://github.com/user-attachments/assets/9ff92824-b8b1-4065-bc90-9129ce5714aa" />
+  <summary>𝙈𝙀 𝘾𝙊𝙍𝙀!!</summary><img width="99" height="56" alt="tumblr_2636db0dbf474a033840384cd68f7b7b_f44390bd_100" src="https://github.com/user-attachments/assets/e2af2733-eec7-4ecc-b113-4110b36c8335" /><img width="730" height="99" alt="tumblr_a253bb4ef6d7659361e9a16418b421aa_57f798ca_1280" src="https://github.com/user-attachments/assets/9ff92824-b8b1-4065-bc90-9129ce5714aa" />
 <p align="center">  
 <img width="250" height="250" alt="tumblr_f62daa2774f79236f23c9d22e96d3784_be62e78d_250" src="https://github.com/user-attachments/assets/a3efd0ed-d708-48f7-8ef3-1e037ca92cfe" />
 <p align="center">
