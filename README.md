@@ -528,7 +528,7 @@
     </p>
 </details>
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F70000&center=true&width=435&lines=partykiller+%26+anomaly+duo+twin%3A;%40spokishere)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=7C01F7&center=true&vCenter=true&width=435&lines=TAX+duo+%26+Orbital+duo+twin%3A;%40redsundew)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=03F7D6&center=true&vCenter=true&width=435&lines=DOUBLECHROMATIC+DUO+twin%3A;%40itsyula-2)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F74201&center=true&vCenter=true&width=435&lines=BLINDFOLD+BROTHERS+DUO+TWIN%3A;%40itsyula-2)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F74200&center=true&vCenter=true&width=435&lines=YUMMERZ+TRIO+twins%3A;%40loopsieboyy+%26+%40PolishDrBirkin)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F74200&center=true&vCenter=true&width=435&lines=AROACE+TRIO+twins%3A;%40spokishere+%26+%40redsundew)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F70000&center=true&vCenter=true&width=435&lines=AXE+duo+twin%3A;%40VoodooPeople7)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F70000&center=true&vCenter=true&width=435&lines=doomsday+duo+twin%3A;%40Ash1elover)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=06F76E&center=true&vCenter=true&width=435&lines=icysilly+duo+twin%3A;%40dancingc0rpses)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=10&pause=1000&color=F70000&center=true&vCenter=true&width=435&lines=OUTLAW+TRIO+twins%3A;%40Ash1elover+%26+VoodooPeople7)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Changa+One&pause=1000&color=F70000&center=true&width=435&lines=partykiller+%26+anomaly+duo+twin%3A;%40spokishere)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Changa+One&pause=1000&color=7C01F7&center=true&vCenter=true&width=435&lines=TAX+duo+%26+Orbital+duo+twin%3A;%40redsundew)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Changa+One&pause=1000&color=03F7D6&center=true&vCenter=true&width=435&lines=DOUBLECHROMATIC+DUO+twin%3A;%40itsyula-2)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Changa+One&pause=1000&color=F74201&center=true&vCenter=true&width=435&lines=BLINDFOLD+BROTHERS+DUO+TWIN%3A;%40itsyula-2)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Changa+One&pause=1000&color=F74200&center=true&vCenter=true&width=435&lines=YUMMERZ+TRIO+twins%3A;%40loopsieboyy+%26+%40PolishDrBirkin)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Changa+One&pause=1000&color=F74200&center=true&vCenter=true&width=435&lines=AROACE+TRIO+twins%3A;%40spokishere+%26+%40redsundew)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Changa+One&pause=1000&color=F70000&center=true&vCenter=true&width=435&lines=AXE+duo+twin%3A;%40VoodooPeople7)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Changa+One&pause=1000&color=F70000&center=true&vCenter=true&width=435&lines=doomsday+duo+twin%3A;%40Ash1elover)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Changa+One&pause=1000&color=06F76E&center=true&vCenter=true&width=435&lines=icysilly+duo+twin%3A;%40dancingc0rpses)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Changa+One&size=10&pause=1000&color=F70000&center=true&vCenter=true&width=435&lines=OUTLAW+TRIO+twins%3A;%40Ash1elover+%26+VoodooPeople7)](https://git.io/typing-svg)
 <img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/38eb9e4d-7a83-46fc-b406-914fe3a36e1f" />
 
 <img width="800" height="450" alt="tumblr_72d7270636b4ec74aeb1018ba9c35653_20391b3f_1280" src="https://github.com/user-attachments/assets/f2371d93-03d4-42ed-bfb0-5e266b8a9ded" />
@@ -536,14 +536,14 @@
 [![f333c65670667d35e4de08585caf39d7](https://github.com/user-attachments/assets/945bb435-c172-4a47-85dc-c81ca33cb727)](https://sc4rri0tzzxr.atabook.org)[![7a21b65c1993eeb2f61d64a7f4d0ec18](https://github.com/user-attachments/assets/6eaeb46e-2a50-48d9-902a-9a5fa54fef27)](https://scarintro.straw.page/)[![fbb709b7187f1f6071487153ebbcac93](https://github.com/user-attachments/assets/53295804-3480-41a8-8e29-45d8bd461281)](https://xenowarning.straw.page/)[![7683906f39f77d3195dc8adba890d9e7](https://github.com/user-attachments/assets/45a69aef-d7d7-4e3d-9ad8-a4fe7b1e5c2f)](https://scarrzzonguts.straw.page/)
 [![65737b5d92b287322bab4e86a0af554b](https://github.com/user-attachments/assets/619c52f8-9430-480e-90b7-31ae622c2997)](https://xenoraxxiezzaboutme.carrd.co/)[![471db45c1b27558d587e07e0b7ece055](https://github.com/user-attachments/assets/92f26d5e-6680-4bbf-a4e7-6bd2e8fab446)](https://guns.lol/thelordsxarixiez) [![Typing SVG](https://readme-typing-svg.demolab.com?font=Syne+Tactile&size=40&pause=1000&color=F72900&center=true&vCenter=true&width=435&lines=ELYY+my+twin!!)](https://git.io/typing-svg)[![tumblr_ed05770e5dbdb3d2b32e8832106b463e_588dbb13_2048](https://github.com/user-attachments/assets/54de32fc-1245-4974-9c81-a121181159e2)](https://github.com/bloodiedafterglow)
 <img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/38eb9e4d-7a83-46fc-b406-914fe3a36e1f" />
-<img width="150" height="150" alt="tumblr_b6691bff776aa0db4aab93c249fca4e0_fa7ebd2c_1280" src="https://github.com/user-attachments/assets/ea24c840-bdea-4943-b3a0-9ba9c5c93e1f" />[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F72900&center=true&vCenter=true&width=435&lines=%22+%F0%9D%98%9B%F0%9D%99%83%F0%9D%98%8C+%F0%9D%98%BF%F0%9D%98%A6%F0%9D%99%AB%F0%9D%98%AA%F0%9D%99%A1+%F0%9D%98%8F%F0%9D%98%BC%F0%9D%98%9A+%F0%9D%98%BD%F0%9D%98%A6%F0%9D%99%9A%F0%9D%98%AF+%F0%9D%99%92%F0%9D%98%88%F0%9D%99%86%F0%9D%98%8C%F0%9D%99%89+%F0%9D%98%9C%F0%9D%99%A5!+%22)](https://git.io/typing-svg)
+<img width="150" height="150" alt="tumblr_b6691bff776aa0db4aab93c249fca4e0_fa7ebd2c_1280" src="https://github.com/user-attachments/assets/ea24c840-bdea-4943-b3a0-9ba9c5c93e1f" />[![Typing SVG](https://readme-typing-svg.demolab.com?font=Changa+One&pause=1000&color=F72900&center=true&vCenter=true&width=435&lines=%22+%F0%9D%98%9B%F0%9D%99%83%F0%9D%98%8C+%F0%9D%98%BF%F0%9D%98%A6%F0%9D%99%AB%F0%9D%98%AA%F0%9D%99%A1+%F0%9D%98%8F%F0%9D%98%BC%F0%9D%98%9A+%F0%9D%98%BD%F0%9D%98%A6%F0%9D%99%9A%F0%9D%98%AF+%F0%9D%99%92%F0%9D%98%88%F0%9D%99%86%F0%9D%98%8C%F0%9D%99%89+%F0%9D%98%9C%F0%9D%99%A5!+%22)](https://git.io/typing-svg)
 <img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/38eb9e4d-7a83-46fc-b406-914fe3a36e1f" />
 <p align="center"> 
   <img width="498" height="281" alt="marvel-rivals-mr" src="https://github.com/user-attachments/assets/7dc4a46a-ab27-483d-b31d-ad1c75124934" /> 
  </p>
 <img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/38eb9e4d-7a83-46fc-b406-914fe3a36e1f" />
 
-  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=AD0000&center=true&vCenter=true&width=435&lines=%22+%F0%9D%98%A0%F0%9D%99%A4%F0%9D%98%B6+%F0%9D%99%88%F0%9D%98%90%F0%9D%99%82%F0%9D%98%8F%F0%9D%99%8F+%F0%9D%98%8B%F0%9D%99%9E%F0%9D%98%A6!+%22)](https://git.io/typing-svg)<img width="150" height="150" alt="tumblr_0f080a3aaed56a664367bfbbbafa8a47_eda2a48c_1280" src="https://github.com/user-attachments/assets/9185b797-27cc-42c7-b6bf-0a1b27799f2e" />
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Changa+One&pause=1000&color=AD0000&center=true&vCenter=true&width=435&lines=%22+%F0%9D%98%A0%F0%9D%99%A4%F0%9D%98%B6+%F0%9D%99%88%F0%9D%98%90%F0%9D%99%82%F0%9D%98%8F%F0%9D%99%8F+%F0%9D%98%8B%F0%9D%99%9E%F0%9D%98%A6!+%22)](https://git.io/typing-svg)<img width="150" height="150" alt="tumblr_0f080a3aaed56a664367bfbbbafa8a47_eda2a48c_1280" src="https://github.com/user-attachments/assets/9185b797-27cc-42c7-b6bf-0a1b27799f2e" />
 <img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/38eb9e4d-7a83-46fc-b406-914fe3a36e1f" />
 
 <img width="2048" height="171" alt="tumblr_fd402a0c713baf4016d55697a8720a0e_931fa291_2048" src="https://github.com/user-attachments/assets/802a3f82-b8a5-48ab-bbfe-871b88520262" />
@@ -591,13 +591,13 @@
 
 <p align="left">
 
-  [![Typing SVG](https://readme-typing-svg.demolab.com?font=sans&pause=1000&color=A30424&width=435&lines=%22Muhahaha!+Now+that's+good+television!%22)](https://git.io/typing-svg) 
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Changa+One&pause=1000&color=A30424&width=435&lines=%22Muhahaha!+Now+that's+good+television!%22)](https://git.io/typing-svg) 
   <img width="150" height="150" alt="tumblr_e2c3a908d1ce083f722a04abb9051061_7736c824_400" src="https://github.com/user-attachments/assets/54e9c840-cdb8-4ee8-867b-5002174c4760" />
 </p> 
 
 <p align="right"> 
   
-  [![Typing SVG](https://readme-typing-svg.demolab.com?font=sans&pause=1000&color=005A9E&width=435&lines=%22Heh.+I+think+I+have...+just+the+one.%22)](https://git.io/typing-svg)
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Changa+One&pause=1000&color=005A9E&width=435&lines=%22Heh.+I+think+I+have...+just+the+one.%22)](https://git.io/typing-svg)
   <img width="150" height="150" alt="tumblr_90e2d97c70d8122600d6ae8e7fe59cd2_bbcc0fa0_400" src="https://github.com/user-attachments/assets/0a1fe6fa-49ef-4fa7-9f3c-a6732eb118e4" />
 </p>
 <img width="1280" height="720" alt="tumblr_95c9bf94e99530170b5ad741cd24b316_1f518497_1280" src="https://github.com/user-attachments/assets/9c844d24-d313-4009-ba8a-97418df1ce40" />
@@ -654,7 +654,7 @@
 <img width="1499" height="360" alt="image" src="https://github.com/user-attachments/assets/56bfbf1e-12c7-4ecf-9148-9ecb1ddfb635" />
 <img width="2048" height="281" alt="tumblr_08ee6db846b182b63b075cf84ca0b805_373b2a14_2048" src="https://github.com/user-attachments/assets/c10ecdcc-3185-43f7-8267-5a7c72464a1a" />
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=4606F7&center=true&vCenter=true&width=435&lines=ALSO+THANKS+%40yakultsson+FOR+THIS;ITS+MY+OC!!1)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Changa+One&pause=1000&color=4606F7&center=true&vCenter=true&width=435&lines=ALSO+THANKS+%40yakultsson+FOR+THIS;ITS+MY+OC!!1)](https://git.io/typing-svg)
 
 <img width="1080" height="1180" alt="756846460_1066668609205289_5162838238393450486_n" src="https://github.com/user-attachments/assets/0a345480-669c-4d12-a77c-40114c55a157" /> 
 
@@ -764,28 +764,28 @@
 
 <p align="left">
   
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=cartoony&pause=1000&color=F72D2D&center=true&vCenter=true&width=435&separator=%3C&lines=%22Hehe%2C+sure.+Goodnight+;%29%22)](https://git.io/typing-svg)<img width="250" height="200" alt="gif" src="https://github.com/user-attachments/assets/41b81abd-3c02-4c76-956a-1c848405f8fa" />
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Changa+One&pause=1000&color=F72D2D&center=true&vCenter=true&width=435&separator=%3C&lines=%22Hehe%2C+sure.+Goodnight+;%29%22)](https://git.io/typing-svg)<img width="250" height="200" alt="gif" src="https://github.com/user-attachments/assets/41b81abd-3c02-4c76-956a-1c848405f8fa" />
 </p> 
 
 <img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/8eb28093-09a8-4109-97b8-21fe92f1629d" />
 
 <p align="right"> 
   
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=cartoony&pause=1000&color=F72D2D&center=true&vCenter=true&width=435&lines=%22You+are+so+sweet!%22)](https://git.io/typing-svg)<img width="250" height="262" alt="gif (3)" src="https://github.com/user-attachments/assets/f0150331-8d51-445a-a9e2-3c076b8f521a" />
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Changa+One&pause=1000&color=F72D2D&center=true&vCenter=true&width=435&lines=%22You+are+so+sweet!%22)](https://git.io/typing-svg)<img width="250" height="262" alt="gif (3)" src="https://github.com/user-attachments/assets/f0150331-8d51-445a-a9e2-3c076b8f521a" />
 </p> 
 
 <img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/8eb28093-09a8-4109-97b8-21fe92f1629d" />
 
 <p align="left">
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=cartoony&pause=1000&color=F72D2D&center=true&vCenter=true&width=435&lines=%22You+mean+that%3F%22)](https://git.io/typing-svg)<img width="250" height="262" alt="gif (1)" src="https://github.com/user-attachments/assets/8bf99e60-640e-4403-b33b-52bf70ace601" />
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Changa+One&pause=1000&color=F72D2D&center=true&vCenter=true&width=435&lines=%22You+mean+that%3F%22)](https://git.io/typing-svg)<img width="250" height="262" alt="gif (1)" src="https://github.com/user-attachments/assets/8bf99e60-640e-4403-b33b-52bf70ace601" />
 </p> 
 
 <img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/8eb28093-09a8-4109-97b8-21fe92f1629d" />
 
 <p align="right"> 
   
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=cartoony&pause=1000&color=F72D2D&center=true&vCenter=true&width=435&lines=%22You+wrote+this+one+for+me%3F%22)](https://git.io/typing-svg)<img width="250" height="262" alt="gif (2)" src="https://github.com/user-attachments/assets/c3b96fde-6356-4545-b8ff-aebb7bf4c9a3" />
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Changa+One&pause=1000&color=F72D2D&center=true&vCenter=true&width=435&lines=%22You+wrote+this+one+for+me%3F%22)](https://git.io/typing-svg)<img width="250" height="262" alt="gif (2)" src="https://github.com/user-attachments/assets/c3b96fde-6356-4545-b8ff-aebb7bf4c9a3" />
 </p> 
 
 <img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/8eb28093-09a8-4109-97b8-21fe92f1629d" />
