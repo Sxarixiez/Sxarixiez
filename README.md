@@ -309,7 +309,7 @@
 
 <p align="center">
 <details>
-  <summary>𝙈𝙀 𝘾𝙊𝙍𝙀!!</summary><img width="730" height="99" alt="tumblr_a253bb4ef6d7659361e9a16418b421aa_57f798ca_1280" src="https://github.com/user-attachments/assets/9ff92824-b8b1-4065-bc90-9129ce5714aa" />
+  <summary>𝙈𝙀 𝘾𝙊𝙍𝙀!!</summary><img width="1000" height="467" alt="Crk_version_7 5_title_povidone-iodine_asset" src="https://github.com/user-attachments/assets/ea634ab2-b082-4164-a959-b23c85466f5c" /><img width="730" height="99" alt="tumblr_a253bb4ef6d7659361e9a16418b421aa_57f798ca_1280" src="https://github.com/user-attachments/assets/9ff92824-b8b1-4065-bc90-9129ce5714aa" />
 <p align="center">  
 <img width="250" height="250" alt="tumblr_f62daa2774f79236f23c9d22e96d3784_be62e78d_250" src="https://github.com/user-attachments/assets/a3efd0ed-d708-48f7-8ef3-1e037ca92cfe" />
 <p align="center">
