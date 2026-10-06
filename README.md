@@ -10,6 +10,8 @@
 <p align="center"> 
 𝗳𝗼𝗿 𝗽𝗼𝗻𝘆 𝘁𝗼𝘄𝗻 𝗯𝗲𝘀𝘁 𝘃𝗶𝗲𝘄 𝗼𝗻 𝗹𝗮𝗽𝘁𝗼𝗽 - 𝗽𝗰
 
+<img width="361" height="293" alt="Crk_gacha_animation_povidone-iodine" src="https://github.com/user-attachments/assets/47213b79-57bb-4820-aba2-881669f2e660" />
+
 <p align="center">
   <img width="150" height="150" src="https://github.com/user-attachments/assets/c41db7ec-a53a-44c1-b316-5df545ed1593">
 </p>
