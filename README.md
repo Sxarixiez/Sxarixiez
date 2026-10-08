@@ -12,6 +12,7 @@
 <p align="center"> 
 𝗳𝗼𝗿 𝗽𝗼𝗻𝘆 𝘁𝗼𝘄𝗻 𝗯𝗲𝘀𝘁 𝘃𝗶𝗲𝘄 𝗼𝗻 𝗹𝗮𝗽𝘁𝗼𝗽 - 𝗽𝗰
 
+<p align="center">
 <img width="386" height="56" alt="tumblr_b3af5f9c6b78989570d87a1f9d12b5be_97cd52c5_400" src="https://github.com/user-attachments/assets/9caf74ed-528c-4ce1-96b7-0790fce42b89" />
 <p align="center">
 <img width="361" height="293" alt="Crk_gacha_animation_povidone-iodine" src="https://github.com/user-attachments/assets/47213b79-57bb-4820-aba2-881669f2e660" />
