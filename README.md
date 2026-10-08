@@ -1,5 +1,3 @@
-<img width="600" height="80" alt="tumblr_1cb574cec1f38a293b960d640fb2d48d_d5c3b663_640" src="https://github.com/user-attachments/assets/a93ea094-3424-490e-8ad6-361b72497bde" />
-<img width="600" height="80" alt="tumblr_8b998962d74c5c00fcda8cca9ee4ed98_3970da6f_640" src="https://github.com/user-attachments/assets/42bc28b0-3afd-42e0-94ec-ddaa2b90243a" />
 <img width="1280" height="720" alt="tumblr_49368e36d4ed71092bfe205638124c7b_14f85b55_1280" src="https://github.com/user-attachments/assets/c8e993d9-4289-4060-95a1-224a2e76a402" />
 <img width="1500" height="80" alt="tumblr_25178745ab37adba9c3bcc64e408cc86_e944502f_2048" src="https://github.com/user-attachments/assets/505b70ef-cd07-426d-9d74-02c0e81d7fb8" />
 <img width="848" height="192" alt="Jeff_the_Land_Shark_Full_Nameplate_-_Devouring_Duo" src="https://github.com/user-attachments/assets/3ea4b9fe-7f5a-47a2-a1d1-200e269efd40" />
@@ -16,6 +14,8 @@
 <img width="386" height="56" alt="tumblr_b3af5f9c6b78989570d87a1f9d12b5be_97cd52c5_400" src="https://github.com/user-attachments/assets/9caf74ed-528c-4ce1-96b7-0790fce42b89" />
 <p align="center">
 <img width="361" height="293" alt="Crk_gacha_animation_povidone-iodine" src="https://github.com/user-attachments/assets/47213b79-57bb-4820-aba2-881669f2e660" />
+<img width="150" height="80" alt="tumblr_1cb574cec1f38a293b960d640fb2d48d_d5c3b663_640" src="https://github.com/user-attachments/assets/a93ea094-3424-490e-8ad6-361b72497bde" />
+<img width="150" height="80" alt="tumblr_8b998962d74c5c00fcda8cca9ee4ed98_3970da6f_640" src="https://github.com/user-attachments/assets/42bc28b0-3afd-42e0-94ec-ddaa2b90243a" />
 
 <p align="center">
   <img width="150" height="150" src="https://github.com/user-attachments/assets/c41db7ec-a53a-44c1-b316-5df545ed1593">
