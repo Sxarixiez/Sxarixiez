@@ -14,6 +14,7 @@
 <img width="386" height="56" alt="tumblr_b3af5f9c6b78989570d87a1f9d12b5be_97cd52c5_400" src="https://github.com/user-attachments/assets/9caf74ed-528c-4ce1-96b7-0790fce42b89" />
 <p align="center">
 <img width="361" height="293" alt="Crk_gacha_animation_povidone-iodine" src="https://github.com/user-attachments/assets/47213b79-57bb-4820-aba2-881669f2e660" />
+<p align="center">
 <img width="150" height="20" alt="tumblr_1cb574cec1f38a293b960d640fb2d48d_d5c3b663_640" src="https://github.com/user-attachments/assets/a93ea094-3424-490e-8ad6-361b72497bde" />
 <img width="150" height="20" alt="tumblr_8b998962d74c5c00fcda8cca9ee4ed98_3970da6f_640" src="https://github.com/user-attachments/assets/42bc28b0-3afd-42e0-94ec-ddaa2b90243a" />
 
