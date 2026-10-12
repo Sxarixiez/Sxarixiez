@@ -25,6 +25,8 @@
 <p align="center"> 
    <img width="91" height="18" src="https://img.shields.io/badge/gri3f'd%20fr0m%20me-800-green?style=for-the-badge"
 </p>
+<p align="center">
+
 <p align="center"> 
 <img width="133" height="98" alt="tumblr_343e36907f7d3c7a0e70572edeb8e7b2_9f91e339_250" src="https://github.com/user-attachments/assets/840caa1f-c2e0-4cfd-998c-087e95c1b8f2" />
 𝗗𝘂𝗺𝗯 𝟳𝘁𝗲𝗲𝗻 -𝗠𝗜𝗡𝗢𝗥- 𝗹𝗶𝘁𝘁𝗹𝗲 𝘀𝗶𝗹𝗹𝘆 𝗮𝘀𝗳 𝗮𝘂𝗱𝗵𝗱 𝗯𝗼𝘆𝗴𝗶𝗿𝗹𝘁𝗵𝗶𝗻𝗴 [𝗮𝗻𝘆 𝗽𝗿𝗼𝗻𝗼𝘂𝗻𝘀] #𝙏𝙃𝙀𝘿𝘼𝙍𝙆𝙇𝙊𝙍𝘿𝙎𝙄𝙈𝙋
