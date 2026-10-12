@@ -32,6 +32,7 @@
 
 <p align="center"> 
 𝗗𝘂𝗺𝗯 𝟳𝘁𝗲𝗲𝗻 -𝗠𝗜𝗡𝗢𝗥- 𝗹𝗶𝘁𝘁𝗹𝗲 𝘀𝗶𝗹𝗹𝘆 𝗮𝘀𝗳 𝗮𝘂𝗱𝗵𝗱 𝗯𝗼𝘆𝗴𝗶𝗿𝗹𝘁𝗵𝗶𝗻𝗴 [𝗮𝗻𝘆 𝗽𝗿𝗼𝗻𝗼𝘂𝗻𝘀] #𝙏𝙃𝙀𝘿𝘼𝙍𝙆𝙇𝙊𝙍𝘿𝙎𝙄𝙈𝙋
+<img width="350" height="19" alt="tumblr_6632e58251401545b62e5984cb12503e_79ca0735_400" src="https://github.com/user-attachments/assets/b6c8b5ed-54c0-4ba6-b814-543b39c03168" />
 <img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/38eb9e4d-7a83-46fc-b406-914fe3a36e1f" />
 <img width="798" height="100" alt="image" src="https://github.com/user-attachments/assets/ea50ff84-3b49-44bc-a055-47d8b8d6aa3c" />
 <img width="1229" height="687" alt="tumblr_b086b4402a2831f178df93866d6e43b0_c3723e1f_1280" src="https://github.com/user-attachments/assets/4b77e556-e781-40a1-a264-1dd4a4d96674" />
@@ -175,9 +176,6 @@
   <img width="150" height="20" alt="tumblr_198b4d9218043f97a686ec709394986c_7fac8a4a_250" src="https://github.com/user-attachments/assets/2b573d71-d2bf-4987-9488-87fb2df49f92" />
     
 <img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/38eb9e4d-7a83-46fc-b406-914fe3a36e1f" />
-
-<p align="center">
-<img width="2048" height="720" alt="tumblr_073b57a29f2d10c865a1a54a0aeb1e40_23fee569_500" src="https://github.com/user-attachments/assets/69a18310-924b-48fe-ae9f-e0533a9b14f0" />
 
 <p align="center">
   <img width="477" height="100" alt="image" src="https://github.com/user-attachments/assets/73fbb0a9-e1ab-4da3-be00-8f0045882b1c" />
