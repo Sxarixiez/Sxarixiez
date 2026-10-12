@@ -170,10 +170,15 @@
   <img width="150" height="20" alt="tumblr_198b4d9218043f97a686ec709394986c_7fac8a4a_250" src="https://github.com/user-attachments/assets/2b573d71-d2bf-4987-9488-87fb2df49f92" />
     
 <img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/38eb9e4d-7a83-46fc-b406-914fe3a36e1f" />
+
+<p align="center">
+<img width="500" height="176" alt="tumblr_073b57a29f2d10c865a1a54a0aeb1e40_23fee569_500" src="https://github.com/user-attachments/assets/69a18310-924b-48fe-ae9f-e0533a9b14f0" />
+
 <p align="center">
   <img width="477" height="100" alt="image" src="https://github.com/user-attachments/assets/73fbb0a9-e1ab-4da3-be00-8f0045882b1c" />
 <img width="1800" height="1013" alt="tumblr_080b0bebc5f5ca0d98d601560a38b758_151cde9c_2048" src="https://github.com/user-attachments/assets/ffa59cc9-2d7a-42dd-a60c-0ec0545873d5" />
 </p> 
+
 <p align="center">
 𝙃𝙞 𝙄'𝙢 𝙎𝘾𝘼𝙍 / 𝙍𝙄𝙊𝙏 / 𝘾𝙊𝙕𝙈𝙊, 𝙢𝙞𝙡𝙚𝙨, 𝙢𝙞𝙡𝙡𝙚𝙧, 𝙖𝙧𝙖𝙘𝙝𝙣𝙖 𝙄 𝙝𝙖𝙫𝙚 𝙨𝙤 𝙢𝙖𝙣𝙮 𝙣𝙖𝙢𝙚𝙨 𝙘𝙖𝙡𝙡 𝙢𝙚 𝙬𝙝𝙖𝙩𝙚𝙫𝙚𝙧 𝙮𝙤𝙪 𝙬𝙖𝙣𝙩 𝙤𝙧 𝙗𝙪𝙧𝙖𝙠 𝙗𝙘𝙯 𝙄'𝙢 𝙛𝙧𝙤𝙢 𝙩𝙪𝙧𝙠𝙞𝙮𝙚  
 
