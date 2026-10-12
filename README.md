@@ -195,7 +195,7 @@
 𝐈'𝐦 𝐧𝐨𝐭 𝐢𝐧𝐭𝐞𝐫𝐚𝐜𝐭𝐢𝐧𝐠 𝐰𝐢𝐭𝐡 𝐭𝐡𝐞 𝐡𝐚𝐳𝐛𝐢𝐧/𝐡𝐞𝐥𝐥𝐮𝐯𝐚 , 𝐝𝐢𝐠𝐢𝐭𝐚𝐥 𝐜𝐢𝐫𝐜𝐮𝐬, 𝐝𝐚𝐧𝐝𝐲'𝐬 𝐰𝐨𝐫𝐥𝐝, 𝐟𝐨𝐫𝐬𝐚𝐤𝐞𝐧 𝐟𝐚𝐧𝐝𝐨𝐦 𝐢𝐟 𝐲𝐨𝐮 𝐚𝐬𝐤 𝐚𝐧𝐝 𝐈 𝐝𝐨𝐧𝐭 𝐬𝐮𝐩𝐩𝐨𝐫𝐭 𝐯𝐢𝐯𝐳𝐢𝐞 𝐢𝐧 𝐚𝐧𝐲 𝐰𝐚𝐲 𝐈 𝐣𝐮𝐬𝐭 𝐥𝐨𝐯𝐞 𝐯𝐨𝐱 𝐩𝐥𝐞𝐚𝐬𝐞
 
 <p align="center">
-<img width="1280" height="1242" alt="bob_velseb_render_by_kingevan210_diflxfx-fullview" src="https://github.com/user-attachments/assets/4bbea019-493d-4823-a6e4-cd6290cf845b" />
+<img width="480" height="480" alt="bob_velseb_render_by_kingevan210_diflxfx-fullview" src="https://github.com/user-attachments/assets/4bbea019-493d-4823-a6e4-cd6290cf845b" />
 
 <p align="center">
 <img width="99" height="56" alt="tumblr_2636db0dbf474a033840384cd68f7b7b_f44390bd_100" src="https://github.com/user-attachments/assets/e2af2733-eec7-4ecc-b113-4110b36c8335" />
