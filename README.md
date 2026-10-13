@@ -1,5 +1,6 @@
 <img width="1280" height="720" alt="tumblr_49368e36d4ed71092bfe205638124c7b_14f85b55_1280" src="https://github.com/user-attachments/assets/c8e993d9-4289-4060-95a1-224a2e76a402" />
 <img width="1500" height="80" alt="tumblr_25178745ab37adba9c3bcc64e408cc86_e944502f_2048" src="https://github.com/user-attachments/assets/505b70ef-cd07-426d-9d74-02c0e81d7fb8" />
+
 <img width="848" height="192" alt="Jeff_the_Land_Shark_Full_Nameplate_-_Devouring_Duo" src="https://github.com/user-attachments/assets/3ea4b9fe-7f5a-47a2-a1d1-200e269efd40" />
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=wh95bd2d2nzt9nw0o7ozlsule&cover_image=true&theme=natemoo-re&show_offline=false&background_color=8FFE09&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)
@@ -36,9 +37,6 @@
 
 <p align="center"> 
 <img width="150" height="20" alt="blinkiesCafe-5m" src="https://github.com/user-attachments/assets/ff594f70-634f-4178-ba60-a33b82d3ce61" /><img width="150" height="20" alt="blinkiesCafe-4K" src="https://github.com/user-attachments/assets/497e7d21-d718-4f48-97b1-54b4b3137975" /><img width="150" height="20" alt="blinkiesCafe-7U" src="https://github.com/user-attachments/assets/790aae00-4a11-4978-ac0f-ef9aac167537" /><img width="150" height="20" alt="blinkiesCafe-bl" src="https://github.com/user-attachments/assets/30dccf56-2f51-49f7-85c5-9681f6b0e96a" /><img width="150" height="20" alt="blinkiesCafe-hC" src="https://github.com/user-attachments/assets/5277a7e1-fc95-4e14-b5a1-0f75c6f20d7b" /><img width="150" height="20" alt="blinkiesCafe-M8" src="https://github.com/user-attachments/assets/2be93813-82e0-4c1e-af2e-33f29348c611" /><img width="150" height="20" alt="blinkiesCafe-OH" src="https://github.com/user-attachments/assets/f148d88e-a21a-446b-8b27-2ff1add1ddd1" /><img width="150" height="20" alt="blinkiesCafe-pE" src="https://github.com/user-attachments/assets/bbd2efdc-c1d1-438b-a366-ee84b35c8e9f" /><img width="150" height="20" alt="blinkiesCafe-7b" src="https://github.com/user-attachments/assets/f64c4e7d-8f32-467b-9096-09b64690b7fc" />
-
-
-
 
 <img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/38eb9e4d-7a83-46fc-b406-914fe3a36e1f" />
 <img width="798" height="100" alt="image" src="https://github.com/user-attachments/assets/ea50ff84-3b49-44bc-a055-47d8b8d6aa3c" />
