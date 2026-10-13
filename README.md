@@ -34,6 +34,7 @@
 𝗗𝘂𝗺𝗯 𝟳𝘁𝗲𝗲𝗻 -𝗠𝗜𝗡𝗢𝗥- 𝗹𝗶𝘁𝘁𝗹𝗲 𝘀𝗶𝗹𝗹𝘆 𝗮𝘀𝗳 𝗮𝘂𝗱𝗵𝗱 𝗯𝗼𝘆𝗴𝗶𝗿𝗹𝘁𝗵𝗶𝗻𝗴 [𝗮𝗻𝘆 𝗽𝗿𝗼𝗻𝗼𝘂𝗻𝘀] #𝙏𝙃𝙀𝘿𝘼𝙍𝙆𝙇𝙊𝙍𝘿𝙎𝙄𝙈𝙋
 <img width="350" height="19" alt="tumblr_6632e58251401545b62e5984cb12503e_79ca0735_400" src="https://github.com/user-attachments/assets/b6c8b5ed-54c0-4ba6-b814-543b39c03168" />
 
+<p align="center"> 
 <img width="150" height="20" alt="blinkiesCafe-5m" src="https://github.com/user-attachments/assets/ff594f70-634f-4178-ba60-a33b82d3ce61" /><img width="150" height="20" alt="blinkiesCafe-4K" src="https://github.com/user-attachments/assets/497e7d21-d718-4f48-97b1-54b4b3137975" /><img width="150" height="20" alt="blinkiesCafe-7U" src="https://github.com/user-attachments/assets/790aae00-4a11-4978-ac0f-ef9aac167537" /><img width="150" height="20" alt="blinkiesCafe-bl" src="https://github.com/user-attachments/assets/30dccf56-2f51-49f7-85c5-9681f6b0e96a" /><img width="150" height="20" alt="blinkiesCafe-hC" src="https://github.com/user-attachments/assets/5277a7e1-fc95-4e14-b5a1-0f75c6f20d7b" /><img width="150" height="20" alt="blinkiesCafe-M8" src="https://github.com/user-attachments/assets/2be93813-82e0-4c1e-af2e-33f29348c611" /><img width="150" height="20" alt="blinkiesCafe-OH" src="https://github.com/user-attachments/assets/f148d88e-a21a-446b-8b27-2ff1add1ddd1" /><img width="150" height="20" alt="blinkiesCafe-pE" src="https://github.com/user-attachments/assets/bbd2efdc-c1d1-438b-a366-ee84b35c8e9f" /><img width="150" height="20" alt="blinkiesCafe-7b" src="https://github.com/user-attachments/assets/f64c4e7d-8f32-467b-9096-09b64690b7fc" />
 
 
