@@ -11,20 +11,10 @@
 <p align="center"> 
 𝗳𝗼𝗿 𝗽𝗼𝗻𝘆 𝘁𝗼𝘄𝗻 𝗯𝗲𝘀𝘁 𝘃𝗶𝗲𝘄 𝗼𝗻 𝗹𝗮𝗽𝘁𝗼𝗽 - 𝗽𝗰
 
+<img width="1280" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
 <p align="center"> 
 <img width="447" height="558" alt="bafkreifqrtir6mq77lokhxgy4uzn6dvsru7hfpvofvv6xgdeglsew6petu-removebg-preview" src="https://github.com/user-attachments/assets/492fa239-0d81-40cc-9d3c-81b2e55ed2e4" />
-
-<p align="center">
-  <img width="150" height="150" src="https://github.com/user-attachments/assets/c41db7ec-a53a-44c1-b316-5df545ed1593">
-</p>
-
-<p align="center"> 
-   <img width="91" height="18" src="https://img.shields.io/badge/gri3f'd%20fr0m%20me-800-green?style=for-the-badge"
-</p>
-<p align="center">
-
-<p align="center"> 
-<img width="133" height="98" alt="tumblr_343e36907f7d3c7a0e70572edeb8e7b2_9f91e339_250" src="https://github.com/user-attachments/assets/840caa1f-c2e0-4cfd-998c-087e95c1b8f2" />
+<img width="1280" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
 
 <p align="center"> 
 𝗗𝘂𝗺𝗯 𝟳𝘁𝗲𝗲𝗻 -𝗠𝗜𝗡𝗢𝗥- 𝗹𝗶𝘁𝘁𝗹𝗲 𝘀𝗶𝗹𝗹𝘆 𝗮𝘀𝗳 𝗮𝘂𝗱𝗵𝗱 𝗯𝗼𝘆𝗴𝗶𝗿𝗹𝘁𝗵𝗶𝗻𝗴 [𝗮𝗻𝘆 𝗽𝗿𝗼𝗻𝗼𝘂𝗻𝘀] #𝙏𝙃𝙀𝘿𝘼𝙍𝙆𝙇𝙊𝙍𝘿𝙎𝙄𝙈𝙋
