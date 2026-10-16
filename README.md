@@ -7,6 +7,9 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=wh95bd2d2nzt9nw0o7ozlsule&cover_image=true&theme=natemoo-re&show_offline=false&background_color=8FFE09&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)
 
 <p align="center"> 
+<img width="2048" height="528" alt="tumblr_1e8a87ffc28cdf6e6c9376b97907097f_b8e10f4c_2048" src="https://github.com/user-attachments/assets/aba9316d-132e-48e8-9941-1591fcf80f77" />
+
+<p align="center"> 
 𝗧𝗵𝗲 𝗕𝗶𝗴𝗴𝗲𝘀𝘁 𝗠𝘂𝗹𝘁𝗶𝗳𝗮𝗻𝗱𝗼𝗺𝗲𝗿 𝘆𝗼𝘂'𝘃𝗲 𝗲𝘃𝗲𝗿 𝘀𝗲𝗲𝗻 𝗛𝗜 𝗜𝗠 𝗦𝗣𝗢𝗞𝗘 𝗜𝗥𝗟!!𝟭‼️‼️‼️🍕🧪
 
 <p align="center"> 
