@@ -21,6 +21,7 @@
 𝗳𝗼𝗿 𝗽𝗼𝗻𝘆 𝘁𝗼𝘄𝗻 𝗯𝗲𝘀𝘁 𝘃𝗶𝗲𝘄 𝗼𝗻 𝗹𝗮𝗽𝘁𝗼𝗽 - 𝗽𝗰
 
 <img width="1280" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
+<img width="350" height="19" alt="tumblr_ed9b1a45b5bfc29ab748b1be5d4a918d_ecfc7580_400" src="https://github.com/user-attachments/assets/c060201b-2153-42f7-ae19-1aa4f0e85d6c" />
 <p align="center"> 
 <img width="200" height="79" alt="tumblr_1e8a87ffc28cdf6e6c9376b97907097f_b8e10f4c_2048" src="https://github.com/user-attachments/assets/aba9316d-132e-48e8-9941-1591fcf80f77" />
 <p align="center"> 
@@ -62,6 +63,8 @@
 <img width="58" height="18" alt="tumblr_5cc802c47d1bd65cbb9c0f54eb4c22d8_71d7978f_75" src="https://github.com/user-attachments/assets/1dde5605-7d85-4ce7-a140-bbb3868fc9cb" />
 <img width="45" height="18" alt="tumblr_c4f92edec83d19c1be75ac91b1215fbc_ab011585_75" src="https://github.com/user-attachments/assets/b09e7741-450a-4360-a340-4b6f03211554" />
 <img width="53" height="18" alt="tumblr_a1091e1e6c9394ae0f7f891ecbe428e5_0a9fdf13_75" src="https://github.com/user-attachments/assets/864340fb-efa1-413c-8aea-699d57365f9b" />
+<img width="80" height="18" alt="tumblr_3829aa95f1469ab196a4af829c3ebbdf_2fa9a5ea_100" src="https://github.com/user-attachments/assets/96953244-64af-411b-b377-b304ae2cd746" />
+<img width="80" height="18" alt="tumblr_3f568c252c2132725f555eb0186072f7_d331c911_100" src="https://github.com/user-attachments/assets/abd8a3ed-b63a-492c-be4c-a75b8832c1e6" />
 <img width="20" height="20" alt="tumblr_d5c5bf22f94a66dbb0bb9a3731a876d4_e473355c_75" src="https://github.com/user-attachments/assets/74f2d7b1-56b1-44ca-b9bd-55cdd7add4d1" />
 <img width="20" height="20" alt="tumblr_925a6eb5228c10789ad8550c30ec3de2_2f2735e0_75" src="https://github.com/user-attachments/assets/75e5c41c-61c1-44f7-96b8-323a50ba5605" />
 
