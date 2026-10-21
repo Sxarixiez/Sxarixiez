@@ -1,4 +1,4 @@
-<img width="2480" height="100" alt="tumblr_5dcedd1b0797df981c373a0ec5c80d45_3588f097_400" src="https://github.com/user-attachments/assets/17f6bbbc-85f9-4cad-a484-5bc4b7faf31d" />
+<img width="2480" height="150" alt="tumblr_5dcedd1b0797df981c373a0ec5c80d45_3588f097_400" src="https://github.com/user-attachments/assets/17f6bbbc-85f9-4cad-a484-5bc4b7faf31d" />
 <img width="1000" height="600" alt="tumblr_93be8037b962dd2f240c27e1f2736b54_ed223802_1280" src="https://github.com/user-attachments/assets/4aa2f100-97fa-47af-8c0d-dab82b961e2a" />
 <img width="1500" height="80" alt="tumblr_25178745ab37adba9c3bcc64e408cc86_e944502f_2048" src="https://github.com/user-attachments/assets/505b70ef-cd07-426d-9d74-02c0e81d7fb8" />
 
@@ -6,13 +6,12 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=wh95bd2d2nzt9nw0o7ozlsule&cover_image=true&theme=natemoo-re&show_offline=false&background_color=8FFE09&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)
 
-<p align="center"> 
-<img width="200" height="79" alt="tumblr_1e8a87ffc28cdf6e6c9376b97907097f_b8e10f4c_2048" src="https://github.com/user-attachments/assets/aba9316d-132e-48e8-9941-1591fcf80f77" />
-<p align="center">
-  <img width="444" height="184" alt="tumblr_8a25a5bf00be0aa50116e3d5ca916a5a_2f35e545_500" src="https://github.com/user-attachments/assets/4a5fc814-0700-4912-af32-e487ac5fb33f" />
-</p>
+
 <p align="center">  
   <img width="306" height="59" alt="tumblr_607a6672fa7aefa5b799f79a9b307741_6b9d4d46_400" src="https://github.com/user-attachments/assets/557e55f2-c57b-46d6-9884-1dc665b3b0aa" />
+</p>
+<p align="center">
+  <img width="444" height="184" alt="tumblr_8a25a5bf00be0aa50116e3d5ca916a5a_2f35e545_500" src="https://github.com/user-attachments/assets/4a5fc814-0700-4912-af32-e487ac5fb33f" />
 </p>
 
 <p align="center"> 
@@ -22,6 +21,8 @@
 𝗳𝗼𝗿 𝗽𝗼𝗻𝘆 𝘁𝗼𝘄𝗻 𝗯𝗲𝘀𝘁 𝘃𝗶𝗲𝘄 𝗼𝗻 𝗹𝗮𝗽𝘁𝗼𝗽 - 𝗽𝗰
 
 <img width="1280" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
+<p align="center"> 
+<img width="200" height="79" alt="tumblr_1e8a87ffc28cdf6e6c9376b97907097f_b8e10f4c_2048" src="https://github.com/user-attachments/assets/aba9316d-132e-48e8-9941-1591fcf80f77" />
 <p align="center"> 
 <img width="447" height="558" alt="bafkreifqrtir6mq77lokhxgy4uzn6dvsru7hfpvofvv6xgdeglsew6petu-removebg-preview" src="https://github.com/user-attachments/assets/492fa239-0d81-40cc-9d3c-81b2e55ed2e4" />
 <img width="1280" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
