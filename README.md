@@ -8,6 +8,12 @@
 
 <p align="center"> 
 <img width="200" height="79" alt="tumblr_1e8a87ffc28cdf6e6c9376b97907097f_b8e10f4c_2048" src="https://github.com/user-attachments/assets/aba9316d-132e-48e8-9941-1591fcf80f77" />
+<p align="center">
+  <img width="444" height="184" alt="tumblr_8a25a5bf00be0aa50116e3d5ca916a5a_2f35e545_500" src="https://github.com/user-attachments/assets/4a5fc814-0700-4912-af32-e487ac5fb33f" />
+</p>
+<p align="center">  
+  <img width="306" height="59" alt="tumblr_607a6672fa7aefa5b799f79a9b307741_6b9d4d46_400" src="https://github.com/user-attachments/assets/557e55f2-c57b-46d6-9884-1dc665b3b0aa" />
+</p>
 
 <p align="center"> 
 𝗧𝗵𝗲 𝗕𝗶𝗴𝗴𝗲𝘀𝘁 𝗠𝘂𝗹𝘁𝗶𝗳𝗮𝗻𝗱𝗼𝗺𝗲𝗿 𝘆𝗼𝘂'𝘃𝗲 𝗲𝘃𝗲𝗿 𝘀𝗲𝗲𝗻 𝗛𝗜 𝗜𝗠 𝗦𝗣𝗢𝗞𝗘 𝗜𝗥𝗟!!𝟭‼️‼️‼️🍕🧪
@@ -564,13 +570,6 @@
 <img width="715" height="75" alt="tumblr_09242cb7a2cd849534429e2b65a61b4e_43a041bc_1280" src="https://github.com/user-attachments/assets/aafe4206-0d95-4a54-a18e-495b5f5ac631" />
 <img width="1215" height="66" alt="tumblr_4eb5643df6808b6e84d303a0dba2d953_97d27f49_1280" src="https://github.com/user-attachments/assets/88b3e2ea-0cc0-498b-95b4-04bf4c990dfd" />
 <img width="1300" height="731" alt="tumblr_d50e572dcefb242829bc3c4d9f6f4057_27e41b8f_2048" src="https://github.com/user-attachments/assets/fa65a973-a55c-48d5-8b1c-8248f03e1439" />
-
-<p align="center">
-  <img width="444" height="184" alt="tumblr_8a25a5bf00be0aa50116e3d5ca916a5a_2f35e545_500" src="https://github.com/user-attachments/assets/4a5fc814-0700-4912-af32-e487ac5fb33f" />
-</p>
-<p align="center">  
-  <img width="306" height="59" alt="tumblr_607a6672fa7aefa5b799f79a9b307741_6b9d4d46_400" src="https://github.com/user-attachments/assets/557e55f2-c57b-46d6-9884-1dc665b3b0aa" />
-</p>
 
 <img width="2048" height="497" alt="tumblr_198053cb55bbb2eec011d540345a9dfb_1f398d6e_2048" src="https://github.com/user-attachments/assets/df54138b-e3d8-43d1-b2c5-a83461abab82" />
 
