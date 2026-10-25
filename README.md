@@ -323,6 +323,9 @@
 
 <p align="center">
 𝗗𝗡𝗜; 𝙞𝙛 𝙮𝙤𝙪'𝙧𝙚 𝙯𝙞𝙤𝙣𝙞𝙨𝙩, 𝙖𝙗𝙡𝙚𝙞𝙨𝙩, 𝙗𝙞𝙜𝙤𝙩, 𝙥𝙚𝙙𝙤𝙥𝙝𝙞𝙡𝙚, 𝙯𝙤𝙤𝙥𝙝𝙞𝙡𝙚, 𝙝𝙤𝙢𝙤𝙥𝙝𝙤𝙗𝙞𝙘, 𝙩𝙧𝙖𝙣𝙨𝙥𝙝𝙤𝙗𝙞𝙘, 𝙜𝙧𝙤𝙤𝙢𝙚𝙧, 𝙧𝙖𝙥𝙞𝙨𝙩, 𝙎𝘼 𝘿𝙊𝙀𝙍, 𝙧𝙖𝙘𝙞𝙨𝙩, 𝙙𝙖𝙧𝙠/𝙘𝙤𝙢/𝙥𝙧𝙤 𝙨𝙝𝙞𝙥𝙥𝙚𝙧 ᴇᴛᴄ.
+<p align="center">
+𝐀𝐋𝐒𝐎 𝐓𝐇𝐄 𝐂𝐎𝐅𝐅𝐈𝐍 𝐎𝐅 𝐀𝐍𝐃𝐘 𝐀𝐍𝐃 𝐋𝐄𝐘𝐋𝐄𝐘 𝐅𝐀𝐍𝐒 𝐎𝐑 𝐈𝐍𝐂𝐄𝐒𝐓 𝐒𝐇𝐈𝐓 𝐃𝐍𝐈 𝐓𝐎𝐎!!
+
 <img width="2048" height="19" alt="tumblr_675e772868f265b1355821eac90fd164_c284de95_2048" src="https://github.com/user-attachments/assets/38eb9e4d-7a83-46fc-b406-914fe3a36e1f" />
 <p align="center">
   <img width="290" height="79" alt="6f4836ef9b60dde3f656ced5c7b651e0" src="https://github.com/user-attachments/assets/a189a62a-7b95-49df-a350-40421589b535" />
