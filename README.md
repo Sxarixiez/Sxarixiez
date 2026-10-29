@@ -1,3 +1,7 @@
+<img width="2000" height="1150" alt="aa710407eb421f8aa0fd7488b17adf7e827b5fd4" src="https://github.com/user-attachments/assets/bbe6a373-0902-408f-a7e3-8c7daa415a53" />
+<img width="1901" height="792" alt="tumblr_5170e789fae1ff2bb77700b0feb50d68_2dd0d631_2048" src="https://github.com/user-attachments/assets/439a4760-7e94-4eea-b83e-7ad9fadf94e6" />
+<img width="2048" height="355" alt="tumblr_4341f2fc09c1494a0fc463488ee75ee7_be85a2af_2048" src="https://github.com/user-attachments/assets/53d9b130-6d31-4038-8bd7-ebc63c741e43" />
+<img width="1822" height="355" alt="tumblr_344d45b7fbe3d16f8f794f2305fb37b3_dfbcd73f_2048" src="https://github.com/user-attachments/assets/16fd1f3c-0405-4f8a-9ade-26949be65b61" />
 <img width="2480" height="150" alt="tumblr_5dcedd1b0797df981c373a0ec5c80d45_3588f097_400" src="https://github.com/user-attachments/assets/17f6bbbc-85f9-4cad-a484-5bc4b7faf31d" />
 <img width="1000" height="600" alt="tumblr_93be8037b962dd2f240c27e1f2736b54_ed223802_1280" src="https://github.com/user-attachments/assets/4aa2f100-97fa-47af-8c0d-dab82b961e2a" />
 <img width="1500" height="80" alt="tumblr_25178745ab37adba9c3bcc64e408cc86_e944502f_2048" src="https://github.com/user-attachments/assets/505b70ef-cd07-426d-9d74-02c0e81d7fb8" />
@@ -27,7 +31,7 @@
 <p align="center"> 
 <img width="447" height="558" alt="bafkreifqrtir6mq77lokhxgy4uzn6dvsru7hfpvofvv6xgdeglsew6petu-removebg-preview" src="https://github.com/user-attachments/assets/492fa239-0d81-40cc-9d3c-81b2e55ed2e4" />
 <img width="1280" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
-
+<img width="1080" height="1080" alt="tumblr_576794e4ba06730a6792a16808e3324a_9994377d_1280" src="https://github.com/user-attachments/assets/f649cae9-83ad-4b7a-8b7e-60278de6c2fb" />
 <p align="center"> 
 𝗗𝘂𝗺𝗯 𝟳𝘁𝗲𝗲𝗻 -𝗠𝗜𝗡𝗢𝗥- 𝗹𝗶𝘁𝘁𝗹𝗲 𝘀𝗶𝗹𝗹𝘆 𝗮𝘀𝗳 𝗮𝘂𝗱𝗵𝗱 𝗯𝗼𝘆𝗴𝗶𝗿𝗹𝘁𝗵𝗶𝗻𝗴 [𝗮𝗻𝘆 𝗽𝗿𝗼𝗻𝗼𝘂𝗻𝘀] #𝙏𝙃𝙀𝘿𝘼𝙍𝙆𝙇𝙊𝙍𝘿𝙎𝙄𝙈𝙋
 <img width="350" height="19" alt="tumblr_6632e58251401545b62e5984cb12503e_79ca0735_400" src="https://github.com/user-attachments/assets/b6c8b5ed-54c0-4ba6-b814-543b39c03168" />
