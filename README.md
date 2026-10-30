@@ -30,6 +30,9 @@
 <img width="200" height="79" alt="tumblr_1e8a87ffc28cdf6e6c9376b97907097f_b8e10f4c_2048" src="https://github.com/user-attachments/assets/aba9316d-132e-48e8-9941-1591fcf80f77" />
 <p align="center"> 
 <img width="447" height="558" alt="bafkreifqrtir6mq77lokhxgy4uzn6dvsru7hfpvofvv6xgdeglsew6petu-removebg-preview" src="https://github.com/user-attachments/assets/492fa239-0d81-40cc-9d3c-81b2e55ed2e4" />
+<p align="center"> 
+<img width="652" height="42" alt="Ekran görüntüsü 2026-10-30 111451" src="https://github.com/user-attachments/assets/7fe72536-e19e-4580-8211-5b38859d787c" />
+<img width="665" height="47" alt="Ekran görüntüsü 2026-10-30 111431" src="https://github.com/user-attachments/assets/7517e2f6-f17d-4572-aa6e-6517870f4e5b" />
 <img width="1280" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/9764aca3-06f2-44ca-847f-ad1b8041d828" />
 <img width="150" height="150" alt="tumblr_576794e4ba06730a6792a16808e3324a_9994377d_1280" src="https://github.com/user-attachments/assets/f649cae9-83ad-4b7a-8b7e-60278de6c2fb" />
 <p align="center"> 
